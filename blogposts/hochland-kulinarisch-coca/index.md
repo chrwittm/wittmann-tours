@@ -1,0 +1,56 @@
+---
+title: 'Hochland kulinarisch: Coca'
+description: ""
+published: 2019-01-02
+redirect_from: 
+            - https://wittmann-tours.de/hochland-kulinarisch-coca/
+categories: "Anden, Bolivien, Bolivien, Coca, Cocablätter, Cocatee, Evo Morales, Höhenkrankheit, kulinarisch, Ofergabe, Opfer, Peru, Peru, Tee"
+hero: ../../../defaultHero.jpg
+---
+# Hochland kulinarisch: Coca
+
+Ein paarmal haben wir schon darauf hingewiesen, dass noch ein Beitrag zum Thema "Coca" folgen werde. Hier ist er nun, der angekündigte Artikel, denn keine Reise ins Andenhochland wäre vollständig ohne eine Begegnung mit Cocablättern. Bei uns in Deutschland durch das Betäubungsmittelgesetz (aufgeführt in [Anlage 2 BtMG](https://dejure.org/gesetze/BtMG/Anlage_II.html)) streng verboten (hoffentlich damit nicht auch dieser Blogpost), gehört Coca in Peru und Bolivien zum täglichen Leben wie in Deutschland Kaffee, Kaugummi oder Aspirin.
+
+![Cocatee aus echten Cocablättern und ein bisschen Muña](http://wittmann-tours.de/wp-content/uploads/2018/11/IMG_2530-1024x768.jpg)
+
+<!--more-->
+
+## Coca, das Allheilmittel
+
+Im Hochland der Anden wird Coca-Tee sowohl in Peru als auch in Bolivien als Wunderwaffe gegen die Höhenkrankheit propagiert. Wer probieren möchte, muss nicht lange suchen. Coca-Tee gehört in jedem Hotel und Restaurant zur normalen Auswahl, genauso wie Kamille oder Pfefferminz. Manchmal steht auch eine Schale mit Cocablättern bereit, so dass man diese mit heißem Wasser aufbrühen oder je nach Gusto pur kauen kann.
+
+![Cocatee gab es in jedem Hotel, als Beutel oder mit ganzen Blättern.](http://wittmann-tours.de/wp-content/uploads/2018/11/APC_1596-1024x768.jpg)
+
+Cocablätter helfen aber nicht nur gegen die Höhenkrankheit, sie sind angeblich auch eine Wunderwaffe gegen viele Erkrankungen. Rolando, unser Führer auf der [Reittour im Colca-Tal](http://wittmann-tours.de/ritt-auf-paso-peruanos-im-colca-tal/), hatte Cocablätter im Erste-Hilfe-Kit. Coca kann als Antiseptikum bei Wunden und gegen einen verstimmten Magen verwendet werden, um nur einige Anwendungsbereiche zu nennen. Über Evo Morales, den heutigen Präsidenten und ehemaligen Cocalero (d.h. Coca-Bauer) lasen wir auf [Wikipedia](https://de.wikipedia.org/wiki/Evo_Morales#Jugend_und_Ausbildung), dass früher in seinem Elternhaus hohes Fieber behandelt wurde, indem der Kranke Cocablätter und Zucker unter die Achseln geklemmt bekam. An der Wirksamkeit bestehen allerdings Zweifel, da vier seiner Brüder in jungem Alter starben.
+
+![Der wichtigste Bestandteil des Erste-Hilfe-Sets: Cocablätter!](http://wittmann-tours.de/wp-content/uploads/2018/11/CW-20180515-095550-0692-1024x683.jpg)
+
+## Cocablätter, ein Politikum
+
+In seiner Amtszeit als Präsident (zurzeit bereits über 10 Jahre) setzt sich Evo Morales persönlich für die Interessen der Coca-Bauern ein. Dabei macht Morales einen deutlichen Unterschied zwischen Kokain (das bekanntlich aus Coca-Blättern gewonnen wird) und dem Konsum der Blätter an sich, was er als Teil der Kultur seines Landes bezeichnet. In einer berühmten Ansprache 2013 vor Vertretern der Vereinten Nationen in Wien bezeichnete er die Einstufung der Cocablätter durch die UN als Droge als historischen Fehler und bat um eine Richtigstellung. Im Laufe der Rede präsentierte er einige Cocablätter und kaute sie sogar öffentlichkeitswirksam. Hier ist das durchaus sehenswerte Video mit dem Appell an die UNO, allerdings steckte Morales erst in [Teil 2](https://www.youtube.com/watch?v=Ilz6WzdaP14) (bei 3:33) ein Cocablatt in den Mund.
+
+https://www.youtube.com/watch?v=FzuL5vHLMPA
+
+Aus eigener Erfahrung können wir berichten, dass Coca-Tee wie irgend ein beliebiger, nicht sonderlich aromatischer Kräutertee schmeckt und auch eine ebensolche Wirkung entfaltet. Wir haben jedenfalls keinerlei Effekt bemerkt. Auch das Kauen von ein paar Kokablättern bescherte uns auf keinen Fall einen Rausch. Wenn man zusätzlich einen Hilfsstoff hinzufügt, wirken die Blätter anregend wie ein starker Kaffee, Tee oder Coca-Cola. Laut [Wikipedia](https://en.wikipedia.org/wiki/Coca-Cola) stammt der Namensbestandteil "Coca" wirklich vom Cocablatt. Auszüge der Pflanze waren wohl Teil der ursprünglichen Rezeptur. Die heutige Zusammensetzung ist natürlich streng geheim. [Einige Quellen](https://www.livescience.com/41975-does-coca-cola-contain-cocaine.html) behaupten trotzdem, dass Coca-Extrakt bis in die 1980er ein Bestandteil von Coca-Cola gewesen sein soll. Fakt oder Mythos? Vermutlich nicht ergründbar. Offiziell wurde Coca jedenfalls aus der Produktgeschichte komplett entfernt.
+
+![Cocablätter statt Coca-Cola](http://wittmann-tours.de/wp-content/uploads/2018/11/APC_1540-1024x768.jpg)
+
+Heutzutage werden die Blätter in Bolivien und Peru gegen den Hunger, als Aufputschmittel oder aus Langeweile wie Kaugummi gekaut. Dabei wird nicht das komplette Blatt in den Mund genommen. Der Stiel wird vorher entfernt, damit es beim Kauen im Mund nicht piekt. Man nimmt etwa 3 bis 5 Blätter, sammelt sie in einer Backe und kaut darauf herum (schluckt sie aber nicht herunter). Der Geschmack erinnert etwas an grünen Tee. An der Stelle im Mund, wo sich die Blätter befinden, wird die Schleimhaut und ein Teil der Zunge nach einer Weile taub. Für uns war es keine weltverändernde Erfahrung. Auch wurden wir weder abhängig noch traten Entzugserscheinungen auf ;).
+
+## Coca als Opfergabe
+
+Die Bedeutung der Cocablätter geht aber weit über den reinen Konsum im Alltag hinaus. Die Menschen benutzen Coca auch in vielen Lebenslagen als Opfergabe. Am zweiten Tag unserer Reittour im Colca-Tal zum Beispiel opferten wir [Pachamama](https://de.wikipedia.org/wiki/Pachamama) in Uyo Uyo Cocablätter, um für einen guten Ritt zu bitten. Rolando holte die Cocablätter aus dem Erste-Hilfe-Kit (woher auch sonst!), jeder suchte drei besonders schöne Blätter aus der Tüte heraus, nahm sie in die Hand, richtete sich zu einem der schneebedeckten großen Berge aus, blies auf die Blätter und sprach seinen Wunsch aus. Anschließend zerkleinerten wir die Blätter und übergaben die Stückchen dem Wind.
+
+![Die besten 3 Cocablätter sind für Pachamama bestimmt.](http://wittmann-tours.de/wp-content/uploads/2018/11/CW-20180515-094733-0691-1024x683.jpg)
+
+Einige Wochen später auf unserer [Tour im südlichen Altiplano](http://wittmann-tours.de/das-suedliche-altiplano-zwischen-uyuni-und-tupiza) in Bolivien kamen wir an einer Stelle vorbei, an der unser Führer Diter vor längerer Zeit einen Lkw-Fahrer gefunden hatte, der nach einer Panne seines Fahrzeuges dort erfroren war. Im Andenken an den Verstorbenen streute er an der entsprechenden Stelle an der Straße ein paar Cocablätter aus dem Fenster unseres Geländewagens. Auch sahen wir an vielen Orten, die den Ahnen geweiht waren, z.B. Begräbnisstätten, Cocablätter als Opfergabe.
+
+![Cocablätter als Opfergabe](http://wittmann-tours.de/wp-content/uploads/2018/11/CW-20180601-054639-2011-1024x683.jpg)
+
+## Coca immer und überall
+
+In Peru und Bolivien sieht man Coca so häufig und selbstverständlich im Alltag, dass man nicht auf die Idee kommen würde, dass Cocablätter anderswo auf der Welt verboten sein könnten. Erhältlich sind sie in Tia-Rosa-Läden genauso wie an vielen Ständen auf der Straße. Kenner bevorzugen Blätter einer bestimmten Region, angeblich schmecken sie etwas anders und haben eine angenehmere Konsistenz. So gibt es sogar bei Cocablättern verschiedene Sorten ;).
+
+![Ein ganz normales Bild in La Paz: Cocablätter auf dem Markt](http://wittmann-tours.de/wp-content/uploads/2018/11/CW-20180613-173744-2862-1024x683.jpg)
+
+Fast jeder unserer Führer hatte eine Tüte mit Cocablättern dabei, eine Tour ohne Coca wäre undenkbar gewesen. Diter zum Beispiel war sehr stolz auf seine neu erworbene Weste, die hätte viele Taschen, damit man alles Wichtige reintun könne: Cocablätter, Handschuhe, Handy… Damit waren die Prioritäten klar :)

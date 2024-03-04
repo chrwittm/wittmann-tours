@@ -1,0 +1,12 @@
+---
+title: 'Hello world!'
+description: ""
+published: 2016-05-10
+redirect_from: 
+            - https://wittmann-tours.de/hello-world/
+categories: "Uncategorized"
+hero: ../../../defaultHero.jpg
+---
+# Hello world!
+
+Hello World!

@@ -1,0 +1,90 @@
+---
+title: 'Safari, ein Suchspiel'
+description: ""
+published: 2019-10-20
+redirect_from: 
+            - https://wittmann-tours.de/safari-ein-suchspiel/
+categories: "Kenia, Kenia, Masai Mara, Mitmachartikel, Ruaha, Safari, Tansania, Tansania, Versteckspiel"
+hero: ./img/wp-content-uploads-2019-09-CW-20180905-165940-1405-1024x683.jpg
+---
+# Safari, ein Suchspiel
+
+Dieser Artikel ist anders als die anderen Blogposts, kein klassischer Reisebericht, sondern ein Mitmachartikel, ein Suchspiel. Versteckt haben sich die Tiere und Ihr könnt versuchen, sie zu finden. Wann genau mir die Idee zu diesem Artikel kam, kann ich nicht mehr sagen, aber das Konzept dahinter ist, dass sich die wilden Tiere in ihrem Lebensraum eben meistens nicht formatfüllend zur Schau stellen, sondern in ihrer natürlichen Umgebung ziemlich gut getarnt sind.
+
+![](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180905-170051-1411-1024x576.jpg)
+
+<!--more-->
+
+## Ein verzerrtes Bild von der Tierbeobachtung auf Safari
+
+In den vorherigen Safari-Artikeln aus [Mikumi](http://wittmann-tours.de/auf-safari-im-mikumi-nationalpark/), [Ruaha](http://wittmann-tours.de/auf-safari-im-ruaha-nationalpark/) und der [Masai Mara](http://wittmann-tours.de/auf-reitsafari-in-der-masai-mara) haben wir versucht, nicht nur die Highlights zu beschreiben, sondern auch ein wenig die Realität des Safari-Alltags. Trotzdem geben die Blogposts natürlich ein verzerrtes Bild wider. Wir beschreiben, was wir mit Euch teilen möchten, was wir für bemerkenswert hielten oder woran wir uns später gerne erinnern würden. Was die Auswahl der Fotos betrifft, sind es natürlich die besten Aufnahmen, die wir im Blog veröffentlichen.
+
+![](./img/wp-content-uploads-2019-09-CW-20180905-165940-1405-1024x683.jpg)
+
+Safari funktioniert in der Wirklichkeit nicht so, dass man in den Jeep steigt, in den Nationalpark fährt und dann liegen die Löwen in bester National Geographic Manier bereit, um den Besuchern die eindrucksvollsten Motive für die Kamera zu bieten. Die wilden Tiere sind keine Fotomodelle und sie trachten auch nicht danach, sich in idealer Beleuchtung in Positur zu werfen und für eine Aufnahme zu lächeln. Ganz im Gegenteil: Die meiste Zeit verstecken sie sich, halten sich im Schatten auf, um nicht von der Sonne gebraten zu werden, und die Kamera ist ihnen im besten Falle egal.
+
+![Ein Baum in der Masai Mara, ein Fleck in der Landschaft](./img/wp-content-uploads-2019-09-CW-20180921-122152-9940-HDR-1024x576.jpg)
+
+## Wer suchet, der findet
+
+In manch anderen Artikeln hatten wir schon beschrieben, wie schwierig es häufig ist, Tiere in freier Wildbahn zu entdecken und zu beobachten. Dies ist auf Safari nicht viel anders. Die folgende Bilderserie versucht, Euch einen Eindruck davon zu vermitteln, wie der Safari-Alltag in der Wirklichkeit aussieht, wie schwierig es ist, Lebewesen in der Wildnis zu erspähen. Und trotzdem ist es eine Positivauswahl, da es auf jeder Aufnahme etwas zu entdecken gibt ;). In der Realität findet das Suchen kontinuierlich aus einem auf einer sandigen Piste fahrenden Geländewagen statt und nur mit dem Zoom der eigenen Augen, deren Vergrößerungsmöglichkeit im Ergebnis viel geringer ist als die auf den Fotos abgebildete.
+
+![Zwei Geparden ruhen sich im Schatten des Baumes aus.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180921-121900-2686-Edit-1024x683.jpg)
+
+Wenn ihr also jetzt die folgenden Aufnahmen anschaut, dann sind dies immer Bilderpaare. Auf dem jeweils ersten Foto ist ein Tier zu sehen - oder besser zu erspähen - aber mit wenig Zoom. Auf dem jeweils folgenden Bild entdeckt Ihr, was Ihr hättet sehen können. Viel Spaß beim Suchen - und Finden!
+
+## Die Suchspiel-Gallerie
+
+Jedes einzelne Bild könnt ihr zum Vergrößern anklicken:
+
+![In der Nähe des Great Ruaha River im Ruaha Nationalpark…](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180905-115602-1269-1024x576.jpg)
+
+![...liegen einige Löwen unter einem Baum.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180905-120631-1280-1024x683.jpg)
+
+![Der Weg führt geradeaus...](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180906-115212-8808-1024x683.jpg)
+
+![...und die Löwen chillen im Schatten.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180906-115219-1527-1024x683.jpg)
+
+![Nur Gestrüpp?](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180906-154857-1652-1024x683.jpg)
+
+![Im Schatten dieses Baumes ist der Leopard fast unsichtbar.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180906-154831-1651-1024x683.jpg)
+
+![Die Sonne blendet im Gegenlicht.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180906-160245-8825-HDR-1024x683.jpg)
+
+![So können sich selbst Elefanten erfolgreich verstecken.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180906-160233-1662-1024x683.jpg)
+
+![Typische Vegetation im Ruaha Nationalpark](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180907-111219-8918-1024x683.jpg)
+
+![Eine Giraffe lugt durch die Zweige.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180907-111219-8918-2-1024x683.jpg)
+
+![Freie Sicht, was ist das neben dem Wasserlauf?](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180907-160116-1908-1024x683.jpg)
+
+![Einige Wasserböcke am Großen Ruaha Fluss](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180907-160201-1909-1024x683.jpg)
+
+![Ein weiter Blick über die Savanne im Ruaha Nationalpark](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180907-163151-1937-1024x683.jpg)
+
+![Ein Straußenmännchen auf Wanderschaft](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180907-163142-1936-1024x683.jpg)
+
+![Erstaunlich viel Grün für die Masai Mara](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180915-173416-9194-1024x683.jpg)
+
+![Ein Löwe ruht im Gebüsch.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180915-173416-9194-2-1024x683.jpg)
+
+![Kleiner Tipp: Das Tier, das wir in diesen Bild suchen, ist nicht das Pferd ;)](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180917-092607-9322-1024x683.jpg)
+
+![Diese beiden Geparden sahen wir vom Pferderücken aus.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180917-092658-9328-1024x683.jpg)
+
+![Nach etwas Übung findet Ihr hier das Tier bestimmt sofort.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180918-112923-2522-1024x683.jpg)
+
+![Der König der Tiere höchstpersönlich](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180918-113109-2524-1024x683.jpg)
+
+![Auch hier ist das Muster jetzt bestimmt bekannt.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180921-113318-9916-HDR-1024x683.jpg)
+
+![Ein Löwenjunges](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180921-113517-2643-1-1024x683.jpg)
+
+![Der Pferdeblick weist den Weg.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180916-083732-9217-1024x683.jpg)
+
+![Ein Löwe beim deftigen Frühstück](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180916-083805-9218-1-1024x683.jpg)
+
+![Auch hier liegt jemand im Schatten.](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180922-102549-0055-1024x683.jpg)
+
+![Ein Rudel schläfriger Löwen](http://wittmann-tours.de/wp-content/uploads/2019/09/CW-20180922-102540-2793-1024x683.jpg)

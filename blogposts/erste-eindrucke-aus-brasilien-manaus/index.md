@@ -1,0 +1,78 @@
+---
+title: 'Erste Eindrücke aus Brasilien: Manaus'
+description: ""
+published: 2019-02-01
+redirect_from: 
+            - https://wittmann-tours.de/erste-eindruecke-aus-brasilien-manaus/
+categories: "Brasilien, Brasilien, erste Eindrücke, Geld, Kautschuk, Manaus, Portugiesisch, Portuñol, Sprache, Zoo"
+hero: ../../../defaultHero.jpg
+---
+# Erste Eindrücke aus Brasilien: Manaus
+
+Nachdem wir unser [Lateinamerika-Puzzle](http://wittmann-tours.de/wp-content/uploads/2018/12/Lateimamerika-Puzzle3.jpg) gelöst hatten, flogen wir direkt ;) von Lima über São Paulo nach Manaus, mitten ins Amazonasgebiet und zur ehemaligen Kautschuk-Hauptstadt Brasiliens. Hier war es deutlich wärmer als im [Madidi](http://wittmann-tours.de/der-bolivianische-dschungel-im-madidi-nationalpark/)-Nationalpark im bolivianischen Teil des Amazonasbeckens. Manaus liegt fast auf dem Äquator. Um Mitternacht zeigte das Thermometer bei sehr hoher Luftfeuchtigkeit noch 25 Grad an. Im Taxi vom Flughafen in die Stadt herrschte jedoch leider wieder Altiplano-Kälte, da der Fahrer die Klimaanlage im Polarmodus laufen ließ ;).
+
+![Willkommen in Brasilien! Bei unserer Ankunft lief die WM-Vorrunde und Brasilien war im WM-Fieber.](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180715-075232-6147-Edit-1024x683.jpg)
+
+<!--more-->
+
+## Ein modernes Land?!
+
+Hui, so viel Zivilisation! Der hypermoderne Flughafen in São Paulo war so groß wie alle Flughäfen zusammen, von denen aus wir in Südamerika bisher gereist waren. Und auch in Manaus begegnete uns zunächst viel vermeintliche Modernität. Wir hätten zum Beispiel (fast) überall mit Kreditkarte bezahlen können. Ein Taxi ruft man am besten per Handy-App und Uber ist sowieso am günstigsten und hat die beste Abdeckung. Seinen Uber-Fahrer kann man natürlich via PayPal bezahlen. Außerdem ist die Infrastruktur deutlich besser: Schlaglochfreie, asphaltierte Straßen! Woran wir uns wieder gewöhnen mussten, war, dass die Geschäfte in Brasilien Öffnungszeiten hatten. Auf einmal gab es nicht mehr an jeder Ecke einen Minimarkt, bei dem wir bis spät in der Nacht noch einkaufen konnten.
+
+![Die Apotheken sahen sehr modern aus. Sie glänzten mit langen Öffnungszeiten und waren auch kleine Mini-Märkte, die allerdings eher Cola als Wasser verkauften ;)](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180703-095724-5871-1024x683.jpg)
+
+Dieses moderne Bild relativierte sich aber ein wenig mit zunehmender Aufenthaltsdauer im Land. Vor allem nach Einbruch der Dunkelheit wurde Manaus für unsere Begriffe deutlich lateinamerikanischer. Es gab Essensstände auf der Straße und die Brasilianer drehten gerne die Musik auf (schalteten sie aber auch um 10 oder 11 Uhr wieder aus). Außerdem wurden die Ampeln endgültig zur Straßendekoration. Über so viele rote Ampeln sind wir im Taxi in noch keinem anderen Land gefahren.
+
+## Man spricht Portugiesisch
+
+Auf der östlichen Seite der Anden (auch wenn dies eine extreme Vereinfachung ist) verlief die Geschichte auf dem südamerikanischen Kontinent etwas anders als auf der Westseite. Das Gebiet des heutigen Brasilien war portugiesische Kolonie. 1815 verlegte der König von Portugal sogar seine Hauptstadt von Lissabon nach Rio de Janeiro und regierte von dort aus. 1822 erlangte das Land ohne Blutvergießen seine Unabhängigkeit. Offenkundiges Überbleibsel dieser von der den spanischen Kolonien so verschiedenen Geschichte ist die Landessprache Portugiesisch.
+
+![Portugiesisch ohne Mühe: Memrise war eine der Apps, mit der ich sehr zufrieden war (zum Vokalen lernen, weniger für Konversation)](http://wittmann-tours.de/wp-content/uploads/2019/01/IMG_4784-1024x782.jpg)
+
+Portugiesisch und Spanisch sind sehr eng miteinander verwandt. Wie einfach oder schwierig es ist, Portugiesisch im Selbststudium auf der Grundlage von soliden Spanischkenntnissen zu lernen, wollte ich herausfinden. Dafür hatte ich drei Monate vor unserer Ankunft in Brasilien angefangen, mit zwei Apps immer wieder zwischendurch Portugiesisch zu lernen. Die Lerngeschwindigkeit war in der Tat ziemlich hoch, da es viele (annähernd) gleiche Worte gibt und auch die Grammatik sehr ähnlich ist. Mein Ziel war es nicht, perfekt Portugiesisch zu können, sondern einigermaßen Portuñol zur Verständigung.
+
+## Portugiesische Sprache, schwere Sprache
+
+Was sich beim Lernen schon andeutete, bestätigte sich in der Realität. Es war sehr einfach für mich, Portugiesisch zu lesen, einfache Sätze zu sagen oder zum Beispiel zu fragen „Wo ist die Toilette?“ ("Onde fica o banheiro?", gesprochen: "Ondsche fika o banjero?"). Die echte Herausforderung war aber, die Antwort zu verstehen! Portugiesisch klingt deutlich anders als Spanisch und selbst bei vermeintlich einfachen Themen haben wir im ersten (und nicht selten auch im zweiten) Anlauf wenig verstanden. Naja, wir hatten ja mehrere Wochen vor uns für den praktischen Teil des Portugiesischkurses ;).
+
+![Zum Glück zweisprachig, obwohl wir schriftlich deutlich mehr verstanden als mündlich.](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180715-101054-6156-1024x683.jpg)
+
+Beim Einchecken im Hotel in Manaus sagte ich meine ersten echten Worte auf Portugiesisch. Meine Begrüßung des Rezeptionisten schien überzeugend genug gewesen zu sein. Er antwortete mit einem Schwall Turbo-Portugiesisch und hatte mich in wenigen Sekunden abgehängt. Zum Glück sprach er aber auch Englisch :).
+
+![Rund um das Teatro Amazonas in Manaus probierten wir unser Portuñol aus.](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180622-192112-3468-1024x683.jpg)
+
+Aufgrund der Ähnlichkeit von Spanisch und Portugiesisch verfolgte ich die Strategie, Standard-Phrasen, die ich kannte, auf Portugiesisch zu sagen, ansonsten spanische Grammatik mit möglichst vielen portugiesischen Wörtern zu benutzen und alles andere mit Spanisch aufzufüllen. Damit waren die Erfolge gemischt, aber meistens brauchbar. Ulkigerweise fragte uns einmal ein Kellner, ob wir aus Portugal kämen, wir hatten wohl einen komischen Akzent :).
+
+## Manaus - Das Paris der Tropen
+
+Manaus liegt mitten im Dschungel des Amazonasbeckens. Eine Ansiedlung gab es schon seit 1669, aber erst ab zirka 1870 wurde Manaus eine richtige Stadt. Der Grund für das Wachstum war der [Kauschtukboom](https://de.wikipedia.org/wiki/Kautschukboom). Nachdem [Charles Goodyear](https://de.wikipedia.org/wiki/Charles_Goodyear) die [Vulkanisierung](https://de.wikipedia.org/wiki/Vulkanisation) erfunden hatte, entwickelte sich Gummi durch die große Nachfrage zum Massenprodukt. Kautschuk war der Rohstoff, der für die Herstellung benötigt wurde, und dieser wurde in den Regenwäldern des Amazonas von wilden Kautschukbäumen gewonnen. Manaus war das Kautschuk-Zentrum Brasiliens und wurde damit zur wohlhabenden Großstadt.
+
+![Palácio Rio Negro, erbaut vom deutschen Kautschukbaron Karl Waldemar Scholz](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180623-130912-5091-Edit-1024x683.jpg)![]()
+
+Einige prächtige Gebäude erinnern noch heute an die Zeit der Kautschukbarone, die u.a. prachtvolle Villen bauten. Manaus war zudem die erste Stadt Brasiliens, die über elektrischen Strom, eine Trinkwasserversorgung und ein Abwassersystem verfügte. So erhielt der Flecken Zivilisation mitten im Regenwald den Spitznamen "Paris der Tropen". Höhepunkt der Dekadenz war das auch heute noch aktive, prunkvolle [Teatro Amazonas](https://de.wikipedia.org/wiki/Teatro_Amazonas). In der guten alten Zeit gab es sogar eine Einfahrt aus Pflastersteinen, die mit Gummi überzogen waren, damit die Kutschen der zu spät kommenden Besucher die Aufführung nicht störten ;).
+
+![Blick aus der einer Logen im prächtigen Teatro Amazonas](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180623-094927-5079-1024x683.jpg)
+
+Heute (wie bestimmt auch damals) riecht es nicht überall nach Rosen in Manaus, auch wenn die Stadt kein Großstadt-Moloch ist. Für immer werden uns die kuriosen Öffnungszeiten der Museen im Gedächtnis bleiben. Am Wochenende hatten die meisten Ruhetag und wochentags machten viele eine ausgedehnte Mittagspause, bevor sie um 17 Uhr schon wieder schlossen. Auch unser Besuch im Büro der Touristeninformation hat sich uns eingeprägt, wo ein sehr engagierter Mitarbeiter uns in flüssigem Englisch über 10 Minuten die Öffnungszeiten aller örtlichen Museen aufsagte….
+
+## Im Zoo in Manaus
+
+Auch wenn wir bisher bei unseren Tierbeobachtungen in freier Wildbahn viele Sichtungen hatten verzeichnen können, wollten wir doch sicher gehen, dass wir die Fauna des Regenwaldes auch wirklich zu Gesicht bekommen würden. Daher gingen wir in Manaus in den Zoo, genauer gesagt gleich in zwei. Einer der beiden wird interessanterweise vom brasilianischen Militär unterhalten. Wir stellten uns immer wieder schmunzelnd einen Bundeswehr-Zoo vor ;). Am Eingang des anderen Zoos (Bosque da Ciência) hing ein Schild, dass die Anlage während der Spiele der brasilianischen [Seleção](https://de.wikipedia.org/wiki/Brasilianische_Fu%C3%9Fballnationalmannschaft) bei der WM geschlossen wäre. Zum Glück fand gerade kein Spiel statt ;)
+
+![Während der Spiele der brasilianischen Nationalmannschaft war der Zoo geschlossen.](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180624-084346-3510-683x1024.jpg)
+
+Der Bosque da Ciência war interessanterweise eher ein großer Park, in dem etliche Tiere sogar außerhalb von Gehegen lebten. Damit war natürlich nicht garantiert, dass man sie auch wirklich sehen konnte - wie in freier Wildbahn. So turnte eine Gruppe von Affen nach Herzenslust durch den Wald und wir sahen (eher durch Zufall) sogar ein Faultier oben in einem Baum hängen, erst reglos, dann verschwand es in Zeitlupe.
+
+![Einfach mal abhängen - Ein Faultier im Bosque da Ciência](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180624-102837-5130-1024x683.jpg)
+
+Der Militärzoo war ein klassischer Zoo mit besseren und schlechteren Anlagen, sprich größeren und kleineren Gehegen. Davon abgesehen wirkte jedoch alles bestens in Schuss und gut gepflegt, nirgendwo blätterte Farbe ab und die Tiere machten auf keinen Fall einen vernachlässigten Eindruck. Trotzdem blickten einige tierische Bewohner auf eine schreckliche Vorgeschichte zurück und waren nichtsdestotrotz ein Botschafter ihrer Spezies. Ein Jaguar, Cunhã, war als misshandeltes Jungtier in den Zoo gekommen, nachdem er aus illegaler Gefangenschaft befreit worden war. Im Zoo erholte er sich wieder, erblindete aber im Laufe der Zeit wegen zurückliegender Mangelernährung. In freier Wildbahn wäre er gestorben, im Zoo konnte er die Herzen der Kinder erobern, die hoffentlich die Sinnhaftigkeit von Umwelt- und Tierschutz erkennen.
+
+![Cunhã: Als Welpe misshandelt, erblindet als Jugendlicher, heute ein Star des Zoos von Manaus.](http://wittmann-tours.de/wp-content/uploads/2019/01/CW-20180624-134046-5185-1024x683.jpg)
+
+## Daumen hoch für Brasilien
+
+Brasilien gefiel uns auf Anhieb sehr gut: freundliche Menschen, schönes warmes Wetter und Manaus war eine interessante und sehr entspannte Stadt, die sich auf keinen Fall nach einer [2 Millionen-Metropole](https://de.wikipedia.org/wiki/Manaus) anfühlte. Immer wenn den Brasilianern etwas gefiel, zeigten sie ein Thumbs-up. Daumen hoch konnte auch heißen "ja", "alles in Ordnung" oder "vielen Dank". Diese Geste war so universell, dass wir nach kürzester Zeit ebenfalls immer häufiger ein Thumbs-up zeigten, um zu signalisieren, das alles in bester Ordnung war oder einfach nur als Dankeschön.
+
+![Auf jedem Schein ein anderes Tier. Am besten hat uns der Jaguar auf dem 50 Reais-Schein gefallen.](http://wittmann-tours.de/wp-content/uploads/2019/01/IMG_3254-1024x479.jpg)
+
+Ein doppeltes Thumbs-up gibt es von uns für die brasilianischen Geldscheine. Sie gefielen uns von allen Währungen, mit denen wir bis dahin zu tun hatten, am besten. Auf jeder Banknote ist ein anderes wunderschönes Tier abgebildet: Schildkröten, Reiher, Papageien, Affen, Jaguare und Fische sind vertreten. Vielleicht sollte der [neue brasilianische Präsident](https://de.wikipedia.org/wiki/Jair_Bolsonaro) weniger mit Kreditkarte bezahlen, sondern lieber sein hübsches Geld in die Hand nehmen. Dann würde er den Regenwald - Lebensraum all dieser Tiere - vielleicht nicht abholzen wollen.

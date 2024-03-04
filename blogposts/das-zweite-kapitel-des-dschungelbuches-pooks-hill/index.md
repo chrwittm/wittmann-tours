@@ -1,0 +1,104 @@
+---
+title: 'Das zweite Kapitel des Dschungelbuches: Pook''s Hill'
+description: ""
+published: 2018-07-16
+redirect_from: 
+            - https://wittmann-tours.de/das-zweite-kapitel-des-dschungelbuches-pooks-hill/
+categories: "Actun Tunichil Muknal, archäologisch, ATM, ATM-Cave, Belize, Belize, Maya, Pooks Hill"
+hero: ../../../defaultHero.jpg
+---
+# Das zweite Kapitel des Dschungelbuches: Pook's Hill
+
+Unsere Erkundung des Dschungels in Belize setzte sich im Süden des Landes in der Nähe von San Ignacio fort, wir verbrachten drei Tage in der Pook's Hill-Lodge. Das nächstgelegene Dorf heißt kurioserweise Teakettle. Der Urwald von Pook´s Hill ist noch ein echter Primärwald, in dem nie Bäume geschlagen worden waren und grenzt an das Tapir Mountain Nature Reserve. Auch hier befand sich früher eine Ortschaft der Maya und auf dem zentralen Platz der historischen Siedlung, der von teilweise rekonstruierten Mauern umgeben ist, kann man sehr stilvoll Krocket spielen. Die Lodge liegt in direkter Nähe der berühmten Actun Tunichil Muknal-Höhle, die allgemein ATM-Cave genannt wird. Direkt beim Einchecken erfuhren wir, dass am gleichen Tag auch eine große Gruppe Biologie-Studenten ankommen würde, um Forschung im Feld zu betreiben. Unsere Begeisterung darüber hielt sich erst in Grenzen, aber es sollte sich als sehr bereichernd erweisen.
+
+![Unterwegs auf abenteuerlichen Pfaden rund um Pook's Hill](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180328-175937-8224-1024x683.jpg)
+
+<!--more-->
+
+## Die Studenten kommen
+
+Es waren Studenten des Sohnes des Besitzers der Lodge, der in England als Biologie-Professor an der University of Southampton arbeitet. Uns wurde versichert, dass auf die zahlenden Gäste die größte Rücksicht genommen würde. Dies äußerte sich erstmal positiv darin, dass wir von einem Standard- in einen (von zwei) Deluxe-Bungalows hochgestuft wurden. Diese standen gut 200 Meter entfernt von den anderen Gebäuden unten am Fluss auf langen Stelzen. So hoch kann der Strom in der Regenzeit ansteigen…
+
+![Unser Deluxe-Bungalow](http://wittmann-tours.de/wp-content/uploads/2018/06/GOPR1247-1024x683.jpg)
+
+Die meisten der jungen Leute waren Bachelor-Studenten. Zwei etwas früher eingetroffene Studierende, Andy und Peter, arbeiteten hingegen an ihrer Doktorarbeit. Ihr gemeinsames Thema war "Gunshot detection". Sie waren keine Biologen, sondern Informatiker: Andy war für Hardware, Peter für Software zuständig. Gemeinsam hatten sie kleine Geräte entwickelt, die den Namen AudioMoth tragen, und die Schüsse von Wilderern im Dschungel erkennen und aufzeichnen.
+
+## AudioMoth: klein, energiesparend und preiswert
+
+Das Alleinstellungsmerkmal von [AudioMoth](https://www.openacousticdevices.info) ist, dass es klein und kompakt ist, wenig Energie verbraucht und wesentlich günstiger ist als vergleichbare Geräte. Andere kommerzielle Produkte sind darauf ausgelegt, dass in direkter Nähe eine Steckdose vorhanden ist.
+
+![AudioMoth: Allzeit bereit, Schüsse und andere ungewöhnliche Geräusche aufzuzeichnen. (Foto vom https://www.openacousticdevices.info/)](http://wittmann-tours.de/wp-content/uploads/2018/06/AudioMoth2-1024x751.jpg)
+
+Das Projekt befand sich in der finalen Phase. Ein Jahr zuvor hatten sie die ersten Prototypen getestet und jetzt wollten sie im nahegelegenen [Tapir Mountain Nature Reserve](https://en.wikipedia.org/wiki/Tapir_Mountain_Nature_Reserve) ein großes Netz an „Motten“ platzieren. Zunächst mussten sie die Geräte aus den Materialien zusammenbauen, die sie mitgebracht hatten: Rohre und Dichtungen, Batterien, SD-Karten und natürlich die Detektoren selbst.
+
+https://twitter.com/OpenAcoustics/status/979086842837504000?ref_src=twsrc%5Etfw
+
+Da sie von England aus über Houston nach Belize hatten fliegen müssen, waren sie bei den texanischen Sicherheitskräften wegen des Inhaltes ihres Gepäcks natürlich aufgefallen, hochnotpeinlich befragt und gründlich gefilzt worden.
+
+Trotz Übergepäcks hatten sie nicht alles aus England mitbringen können. Also waren die beiden an den Tagen, an denen wir sie auf Pook's Hill trafen, auch damit beschäftigt, weiteres Material zu besorgen, zum Beispiel Batterien. Die passenden Batterien gab es aber nur im Set mit Taschenlampen… Eine Bestellung von Batterien (ohne Taschenlampe) würde vermutlich zu lange dauern… So kann es gut sein, dass sie nach unserer Abfahrt eine Kiste voll Taschenlampen gekauft haben, nur um die Batterien zu bekommen ;).
+
+## Der Schutz des Tapir Mountain Nature Reserve
+
+Ziel des Projektes soll es sein, Fakten über illegale Aktivitäten im Tapir Mountain Nature Reserve zu erheben, das Ausmaß zu dokumentieren und damit gleichzeitig stichhaltige Beweise zu sammeln. Aktuell gibt es nur Vermutungen und folglich sehen sich die Politiker zurzeit nicht in der Pflicht, Maßnahmen zum Schutz des Gebietes zu ergreifen. So werden weiterhin illegal Tiere gejagt.
+
+![Der Wald rund um Pook's Hill in seiner ganzen Pracht, so möge er bleiben.](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180329-095300-8227-HDR-1024x683.jpg)
+
+Auch das illegale Schlagen von Edelhölzern bedroht die Integrität des Naturreservates. Eine weitere Anwendung von „AudioMoth“ ist es, auch Geräusche von Motorsägen aufzeichnen, um auch illegale Abholzungsaktivitäten zu belegen.
+
+Bis diese Daten verfügbar sein werden, wird noch etwas Zeit vergehen, da die Geräte die Daten nur speichern und nicht versenden können. In einem weiteren Schritt müssen die Detektoren also eingesammelt und ausgewertet werden. Wir wünschen weiterhin viel Erfolg beim Projekt!
+
+## Der Dschungel von Pook's Hill erwacht
+
+Auch in Pook's Hill gab es viele Gelegenheiten, die Tiere des Dschungels zu beobachten. Die beste Zeit war wie üblich früh morgens. (Warum können die Vögel nicht einfach ausschlafen? ;) ) Der Urwald erwachte zum Sonnenaufgang ab 6 Uhr. Bald entfaltete sich eine bunt gemischte Geräuschkulisse. Der Dschungel schnatterte und quiekte, Papageien krächzten, Spechte zirpten und hämmerten und wieder andere Vögel piepten und zwitscherten. Die Zikaden erzeugten zusätzlich ihr allgegenwärtiges ohrenbetäubendes Hintergrundgeräusch.
+
+![Red-Throated Tanager am Frühstücksbuffet](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180329-063510-8453-1024x683.jpg)
+
+Noch vor dem Frühstück trafen wir uns mit Mario, einem der Führer, zur morgendlichen "Wanderung". So richtig weit kamen wir allerdings nicht, da die Vögel schon auf uns warteten. Mario stellte das Scope (ein Fernrohr auf einem Stativ) immer wieder an eine andere Stelle und richtete es aus, um uns die verschiedenen Vögel zu zeigen: Trogons, kleine gelbe Flycatcher, Papageien, Tukane, etc.
+
+![Collared Aracari Toucanet](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180329-073330-8511-1024x683.jpg)
+
+## Wandern, Tubing, Baden, Wandern
+
+Nach dem Frühstück machten wir eine echte kurze Wanderung auf den Wegen der Lodge. Das war dennoch eine schweißtreibende Angelegenheit, zumal das Terrain hügliger als bei Chan Chich war. Tiere sahen wir relativ wenige, nur einige schöne bunte Schmetterlinge. Auch die Mücken waren weniger aggressiv. Dafür war der Wald mit den riesigen alten Bäumen sehr beeindruckend.
+
+![Urwaldselfie](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180329-105234-8269-1024x683.jpg)
+
+Nachmittags lud der Fluss zum Baden oder Tubing ein. Die Fließgeschwindigkeit war eher träge, gerade so, dass wir gegen den Strom schwimmen konnten und dabei nicht vom Fleck kamen ;). Der Kingfisher-Pool machte seinem Namen alle Ehre: Dreimal begegneten wir diesen Vögeln, als sie dicht über der Wasseroberfläche den Flusslauf entlang flogen.
+
+![Der Roaring River eignet sich hervorragend zum Baden (hier der Kingfisher-Pool) und zum Tubing](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180328-171625-8213-1024x683.jpg)
+
+Beim Tubing war das Prinzip das gleiche wie beim Cave-Tubing, nur diesmal ohne Höhle. Ganz gemütlich konnten wir uns in einem Reifen den Strom hinabtreiben lassen. Von unten kühlte das Wasser schön und wir hatten reichlich Zeit, uns den Dschungel zu begucken, da die Geschwindigkeit recht meditativ war. Wenn der Wasserstand zu niedrig wurde und wir strandeten, musste wir kurz aufstehen und etwas flussabwärts gehen. Sobald das Wasser wieder tiefer war, konnten wir uns mitsamt unserem Reifen wieder zu Wasser lassen und weiter ging es. Zwischendurch hielten wir auch mal an einer Badestelle an. Lustig waren die kleinen Tetra-Fische, die uns die Haut beknabberten, sobald wir stillhielten. Am Endpunkt des Tubing trafen wir die ganze Gruppe der Studenten beim Baden. Sie zeigten uns eine Gruppe von Brüllaffen, die direkt neben dem Fluss in einem Baum herumkletterten.
+
+![Nachts kommen andere Tiere zum Vorschein, zum Beispiel Frösche](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180328-200536-8427-1024x683.jpg)
+
+Den Tag beschlossen wir mit einer kleinen Nachtwanderung nach dem Abendessen. Nach Einbruch der Dunkelheit waren ganz andere Tiere aktiv als tagsüber. So entdeckte unser Führer Mario einige Spinnen und Frösche. Und hoch oben von einem Baum beobachtete uns ein Kinkajou.
+
+## Die Actun Tunichil Muknal-Höhle
+
+Gut 40 Minuten auf einer holperigen Piste von Pook's Hill entfernt liegt die sogenannte [ATM-Cave](https://de.wikipedia.org/wiki/Actun_Tunichil_Muknal), wo man kein Geld abheben kann, um den obligatorischen Kalauer gleich hinter uns zu bringen ;). ATM steht für Actun Tunichil Muknal (Übersetzt: Cave of the Stone Sepulchre, also Höhle des steinernden Grabs).
+
+Die Höhle war früher für die Maya von großer spiritueller Bedeutung. Sie sahen darin Xibalba, die Unterwelt. Die ATM-Cave ist dahingehend bedeutend, als dass Archäologen dort viele Artefakte und Skelette von Menschenopfern gefunden haben. Durch die Höhle fließt der gleiche Fluss (Roaring River), auf dem wir tags zuvor getubt waren (etwas weiter flussabwärts). Die Besichtigung war ein echtes Caving-Abenteuer.
+
+![Der Eingang zur ATM-Cave, Foto von Gonzo Gooner, CC-BY-3.0, https://commons.wikimedia.org/wiki/File:ATM_Cave_-_panoramio.jpg](http://wittmann-tours.de/wp-content/uploads/2018/06/ATM_Cave_-_panoramio-768x1024.jpg)![]()
+
+Schon auf den ersten Metern des Weges zum Höhleneingang mussten wir durch den Fluss schwimmen, da die Brücke vor einigen Jahren in der Regenzeit weggespült und nicht wieder aufgebaut worden war. Noch zwei weitere Male mussten wir durch den Roaring River waten. Am Eingang der Höhle befand sich ein großes Becken, das wir durchschwammen. Drinnen gingen oder wateten wir ca. 5 Kilometer, vorbei an prächtigen Gesteinsformationen und glitzernden Kristallablagerungen. Ein paar Vorsprünge im Felsen, die wir erkletterten, und eine Leiter führten uns in die riesige Hauptkammer, vor deren Betreten wir unsere Schuhe ausziehen mussten. Schließlich waren wir - auf Socken - im archäologisch spannenden Teil der Höhle angekommen.
+
+![Maya-Töpferei in der ATM-Cave, Foto von Jkolecki, CC-BY-SA-3.0, https://commons.wikimedia.org/wiki/File:Actun_tunichil_muknal-pottery.jpg](http://wittmann-tours.de/wp-content/uploads/2018/06/Actun_tunichil_muknal-pottery-1024x768.jpg)![]()
+
+## Archäologische Schätze
+
+Tonbehältnisse lagen in der Höhle und einige waren mittlerweile quasi mit dem Boden verschmolzen, da Ablagerungen sie umschlungen hatten. Neben der Öffnung eines der Gefäße konnte man ganz klar die eingeritzte Zeichnung eines Affen erkennen. Vermutlich enthielten die Behälter ursprünglich Opfergaben an die Götter.
+
+Der Höhepunkt des Besuches waren die Skelette von dort geopferten Erwachsenen und Säuglingen, die noch fast wie damals in der Höhle lagen, inzwischen aber auch mit einer Schicht von Ablagerungen überzogen waren. Leider sind durch die Besucher schon ein paar Fundstücke in Mitleidenschaft gezogen worden. Ein Tourist war auf den Schädel eines Skeletts getreten, und einem anderen Besucher war die Kamera auf einen anderen Schädel gefallen. Seitdem sind Fotoapparate in der Höhle strickt verboten (weshalb wir die Wikipedia-Fotos zeigen).
+
+![The Crystal Maiden, Das Skelett eines Menschenopfers in der ATM-Cave, Foto von Peter Andersen, CC-BY-SA-3.0-migrated, https://commons.wikimedia.org/wiki/File:Actun_Tunichil_Muknal.jpg](http://wittmann-tours.de/wp-content/uploads/2018/06/Actun_Tunichil_Muknal-768x1024.jpg)![]()
+
+Eigentlich ist es sehr erstaunlich, dass diese Höhle für Touristen geöffnet ist. Es würde uns nicht wundern, wenn sie in der Zukunft ganz geschlossen oder die Anzahl der Besucher stark eingeschränkt würde. In der Höhle geht es teilweise recht eng zu und vieles wirkte sehr fragil. Insgesamt haben wir etwa 100 andere Besucher getroffen (maximale Gruppengröße 8). Trotzdem kam es in engen Durchgängen und besonders beim Aufstieg in die Hauptkammer zu Staus und es ist vermutlich eine Frage der Zeit bis wieder etwas passiert, sei es die Verletzung einer Person oder die Beschädigung weiterer archäologischer Fundstücke.
+
+## Ein unvergessliches Erlebnis
+
+Der Besuch von Actun Tunichil Muknal war ein außergewöhnliches Erlebnis in Belize, da sich auf wunderbare Art und Weise eine spektakuläre Höhle und eine einzigartige archäologische Stätte verbinden. Die Relikte der Maya sind sehr interessant und weltweit für Besucher in dieser Form nur dort so zu sehen.
+
+![Der Dschungel von Pook's Hill](http://wittmann-tours.de/wp-content/uploads/2018/06/CW-20180329-105040-8260-HDR-1024x683.jpg)
+
+Insgesamt hat uns die Dschungel-Lodge Pook's Hill besser gefallen als Chan Chich. Die Atmosphäre war familiär und authentisch, was wir sehr schätzten. Das interessante Projekt von Andy und Peter hat uns zusätzlich in seinen Bann gezogen. Und natürlich hat uns auch die Natur selbst sehr beeindruckt. Eines Abends konnten wir drei Horden von Brüllaffen aus verschiedenen Richtungen akustisch gut unterscheiden. Von den Studenten hörten wir im Gegensatz dazu nichts mehr. Den aufdringlichen Night Jay (einen ziemlich lauten Vogel, der einförmig immer wieder wie ein sehr niedrigfrequenter Digitalwecker piept) hätten wir nachts gerne abgeschaltet ;). Und Mona bestand auf der Entfernung einer fetten schwarzen Tarantel, die innen auf den getrockneten Palmwedeln saß, aus denen das Dach unserer Hütte bestand. Unvergesslich werden uns die Glühwürmchen bleiben, die im Dunkeln rund um unseren Bungalow blinkten.

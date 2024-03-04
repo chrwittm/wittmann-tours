@@ -1,0 +1,52 @@
+---
+title: 'An der Grenze von Mexiko nach Belize'
+description: ""
+published: 2018-06-26
+redirect_from: 
+            - https://wittmann-tours.de/an-der-grenze-von-mexiko-nach-belize/
+categories: "Ausreisegebühr, Belize, Chetumal, Exit Tax, Grenze, Grenzübergang, Mexiko, Mexiko, Nepp, Touristenkarte"
+hero: ../../../defaultHero.jpg
+---
+# An der Grenze von Mexiko nach Belize
+
+Wie schon bei der [Einreise](http://wittmann-tours.de/erste-eindruecke-aus-mexiko/) nach Mexiko, so waren auch die Formalitäten beim Grenzübertritt nach Belize bei Chetumal etwas spannend. Es ging ums liebe Geld. Eigentlich ist die Ausreise aus Mexiko gebührenfrei. Der Reiseführer geht so weit, dass er sinngemäß schreibt: Wenn jemand versucht, Dir Geld für das Passieren der Grenze abzuknöpfen, dann will er Dich ausnehmen. Und so entfalteten sich die folgenden Ereignisse…
+
+![Die Grenze zwischen Mexiko und Belize (Da man an Staatsgrenzen nicht fotografieren darf, hat dieser Post weniger Bilder als sonst)](http://wittmann-tours.de/wp-content/uploads/2018/05/Karte2-1024x720.jpg)
+
+<!--more-->
+
+## Beim Ticketkauf erfuhren wir von der Ausreisesteuer
+
+Wir fuhren von Chetumal nach Belize City mit dem Busunternehmen [Marlin Espadas](http://marlinespadas.net/), dem einzigen Anbieter in Chetumal, der die Strecke nicht mit alten US-amerikanischen Schulbussen abdeckt. Das war zwar bequem, als reiner Touristentransport vielleicht aber auch fette Beute für die Grenzbeamten. Als wir das Ticket kauften, sagten uns die Angestellten der Busgesellschaft, es gäbe eine Exit Tax von 500 Pesos (ungefähr 21 Euro), manchmal müsse man sie bezahlen, manchmal nicht. Das klang reichlich dubios, also suchten wir im Internet nach Erfahrungsberichten. Und siehe da, der Grenzübergang scheint berühmt-berüchtigt dafür zu sein, bei ausländischen Reisenden abzukassieren.
+
+Den Berichten im Internet entnahmen wir, dass es zwei Hauptvarianten gibt. Variante 1: In Nachtbussen werden einfach von jedem Passagier 500 Pesos einsammelt, ohne Diskussion, erst dann darf der Bus weiterfahren. Bei Variante 2 geht es darum, dass man seine Touristenkarte bezahlen muss, wenn man länger im Land ist. Da die Touristenkarte in vielen Flugtickets im Preis enthalten ist, man aber dafür keinen (anerkannten) Beleg hat, wird eben bei der Ausreise noch einmal kassiert. Das ist besonders lukrativ, weil Flüge nach Cancun wesentlich günstiger sind als direkt nach Belize und die Touristen dann über diesen Grenzübergang bei Chetumal müssen. Bei der Einreise nach Mexiko in San Ysidro hatten wir die Touristenkarte bezahlt und würden diese auch vorlegen können, wir waren also gespannt, was passieren würde.
+
+![Touristenkarte als Vordruck, leider haben wir unsere nicht als Andenken fotografiert](http://wittmann-tours.de/wp-content/uploads/2018/05/Touristenkarte-1024x613.jpg)
+
+## An der mexikanischen Grenze
+
+Bei der Ausreise kam es dann, wie es kommen musste. Die Grenzbeamtin auf mexikanischer Seite wollten unsere Touristenkarten nicht anerkennen, da nirgendwo der Betrag ersichtlich war, den wir bezahlt hatten. Touché, den Kassenbon hatten wir nicht mehr. Entgegen einigen anderen Berichten im Internet blieb es aber recht professionell.
+
+Wir erklärten genau, wie wir die Vorgänge am Grenzübergang in San Ysidro in Erinnerung hatten, dass wir dort bezahlt hätten und dass anschließend die Touristenkarte ausgestellt worden sei. Auf der Karte war schon ein Ausreisestempel in einem dafür vorgesehenen Feld aus San Ysidro nach Artikel 38 irgendeines Bankgesetzes. Im Nachhinein fanden wir es auch eigenartig, dass wir schon einen Ausreisestempel hatten, aber das schien in San Ysidro der etablierte Prozess gewesen zu sein. Die Beamtin wollte mit ihrem Vorgesetzten reden, also mussten wir uns hinten in der Schlange wieder anstellen.
+
+Als wir wieder an der Reihe waren, hatte die Grenzbeamtin zwar noch keine Neuigkeiten, war aber bemüht, den Chef des Grenzübergangs zu erreichen. Tatsächlich kam er wenige Minuten später in das kleine Büro. Wir beschrieben den Ablauf in San Ysidro erneut. Zögerlich erkannte er unsere Touristenkarten an, wir bekamen den begehrten Ausreisestempel im Pass ohne etwas zu bezahlen. Alle anderen im Bus mussten 500 Pesos (eigentlich 533 Pesos) aushändigen, da die Zahlungen der Fluggesellschaften nicht anerkannt oder die 6-Tagesregel (die besagt, dass kurze Aufenthalte gebührenfrei sind) nicht angewandt wurden.
+
+![Am Ende doch ohne Exit Tax, der Ausreisestempel aus Mexiko](http://wittmann-tours.de/wp-content/uploads/2018/05/CW-20180503-153245-9889-1024x683.jpg)
+
+## Geldmacherei oder nicht?
+
+Wir fühlten uns am Ende einigermaßen fair behandelt, aber ein Geschmäckle blieb. Eigenartig war auch, dass die Ein- und Ausreise keinem einheitlichen Prozess folgte. Jeder Grenzübergang scheint seine eigenen Regeln zu haben. Immerhin haben wir eine Sache gelernt: Für offizielle Gebühren werden wir IMMER alle Quittungen und Papiere solange aufheben (am besten zusätzlich noch fotografieren) bis wir das Land verlassen haben!
+
+Die Einreise in Belize hingegen war deutlich einfacher. Wir hatten im Bus schon das Einreiseformular ausgefüllt und zeigten unseren Pass. Dieser wurde eingescannt, registriert und 2 Minuten später hatten wir unsere Stempel. Der freundliche Grenzbeamte wünschte uns noch viel Spaß.
+
+![Willkommen in Belize!](http://wittmann-tours.de/wp-content/uploads/2018/05/IMG_2602-1024x683.jpg)
+
+## Wie aus mexikanischen Pesos Belize Dollars wurden
+
+Da Banken in Belize kurze Öffnungszeiten und lange Schlagen haben und Geldautomaten angeblich nicht immer befüllt sind, war die Empfehlung des Reiseführers, direkt an der Grenze Geld einzutauschen. Dort gibt es allerdings keine offizielle Wechselstube, sondern nur ein paar inoffizielle Geldwechsler. Die Jungs sind nicht auf dem Gelände des Grenzübergangs, sondern auf der anderen Seite eines Maschendrahtzauns.
+
+Damit funktioniert das Geldwechseln an der Grenze so: Man nennt den Betrag, bekommt auf einem großen Taschenrechner den Wert in Belize Dollar gezeigt (der Kurs war besser als erwartet), das Gegenüber schiebt das Bündel Belize Dollars durch eine Masche des Zaunes, man zählt nach und reicht anschließend die Rolle Pesos zurück durch die Absperrung. Wir kamen uns fast so vor, als würden wir im Geheimen schmutzige Drogengeschäfte abwickeln. Illegal ist es aber auf jeden Fall, die Praxis wird aber toleriert.
+
+Damit erhielten wir zwar keine Quittung (muss man vorweisen, wenn man wieder offiziell zurücktauschen möchte), aber das war uns gleichgültig. Hauptsache, wir hatten wenigstens etwas Geld in der Landeswährung. So lächelte uns eine sehr junge Queen gütig von unseren ersten Belize-Dollars entgegen. Belize ist schließlich Mitglied des Commonwealth. Wir konnten wieder in den Bus einsteigen, die Fahrt nach Belize City fortsetzen und erste Eindrücke aus Belize (Link folgt) sammeln.
+
+![20 Belize Dollar, präsentiert von einer jungen Queen](http://wittmann-tours.de/wp-content/uploads/2018/05/IMG_2158-1024x502.jpg)

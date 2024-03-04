@@ -1,0 +1,74 @@
+---
+title: 'Wie war Bolivien?'
+description: ""
+published: 2019-01-17
+redirect_from: 
+            - https://wittmann-tours.de/wie-war-bolivien/
+categories: "Altiplano, Bolivien, Bolivien, Essen, Evo, Evo Morales, Heizung, kalt, kulinarisch, Morales, Politik, Trinken"
+hero: ../../../defaultHero.jpg
+---
+# Wie war Bolivien?
+
+Bolivien hat uns als Reiseland sehr gut gefallen. Alles war deutlich unproblematischer als vom Lonely Planet heraufbeschworen, die Infrastruktur erwies sich als besser als erwartet und insgesamt erschien uns das Land wesentlich untouristischer als Peru, trotz Sehenswürdigkeiten auf Weltklasseniveau. In Bolivien fühlten wir uns nicht als Touristen, sondern endlich wieder als Reisende.
+
+![Typisch Bolivien: Alpakas auf dem Altiplano](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180601-053808-3916-1024x683.jpg)
+
+<!--more-->
+
+## Im Altiplano war es kalt
+
+Ich glaube, wir sagten es bereits ;). Im [Altiplano](https://en.m.wikipedia.org/wiki/Altiplano#/media/File%3AMapa_cuencas_endorréicas_meseta_del_collao.jpg) war es sehr kalt und das, obwohl immer strahlender Sonnenschein herrschte und es an keinem Tag geregnet hat. An unserem letzten Altiplanomorgen begrüßte uns das Thermometer zum Abschied sogar mit -17 Grad… Auch die Einheimischen beklagten sich über die Kälte, aber viele hatten keine Heizung zu Hause. Wir möchten also nicht miterleben, wie die Temperaturen in einem durchschnittlichen bolivianischen Haus sind. Es hat uns schon sehr verwundert, da die Kälte ja kein neues Phänomen darstellt und es Möglichkeiten zum Heizen gäbe. Eines morgens in Uyuni erzählte unser Führer Diter, es sei am vorhergehenden Abend so kalt gewesen, dass er zu Hause nichts hätte machen können und daher einfach ins Bett gegangen sei.
+
+![Auf verlorenem Posten: Mit 50% Leistung steig die Zimmertemperatur um maximal 2 Grad an](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180604-211152-2324-1024x683.jpg)
+
+Während ich den Entwurf dieser Zeilen tippte, saßen wir übrigens im Hotel in [Tupiza](http://wittmann-tours.de/von-tupiza-bis-sucre-abschied-vom-altiplano) im Süden Boliviens, auf "nur noch" 3000 Metern in einem der besten Hotels der Stadt. Als Heizung haben wir erst auf Nachfrage einen wackeligen Elektroheizkörper bekommen, der nur zu 50% funktionierte, da eines von zwei Heizelementen durchgebrannt war. Ich trug ein Thermounterhemd, ein Merino T-Shirt, einen Wollpullover, eine Strickjacke und meine Regenjacke. Damit war mir nicht mehr kalt ;).
+
+## Die gute Höhenluft
+
+Aber nicht nur in Hotelzimmern, sondern auch im Auto war es mit der Heizung nicht so einfach in Bolivien. So ein Verbrennungsmotor produziert zwar schön viel Abwärme, aber die Bolivianer öffnen lieber das Fenster eine Handbreit, um die gute Höhenluft hereinzulassen, seufz... Dabei haben wir in einigen Fahrzeugen gesessen, in denen die Heizung prinzipiell an war, d.h. der Dreh- bzw. Schieberegler für die Temperatur stand auf heiß, aber das Gebläse war nicht eingeschaltet. Damit war es auch im Kfz landestypisch kalt… Aber kein Problem, wie eigentlich überall trägt man ja ohnehin mehrere Schichten warmer Kleidung ;)
+
+![Zur Vermeidung des Käfergrußes benutzen die Bolivianer nicht die Heizung, sondern öffnen die Fenster](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180606-104634-2377-1024x683.jpg)
+
+Die Höhenluft der Anden war nicht nur kalt, sondern auch sehr trocken. Das folgende würde also fast besser in einen Artikel "Wie war das Hochland?" passen. Nach 7 Wochen Aufenthalt im Hochland der Anden, von Ecuador über Peru bis Bolivien, waren unsere Schleimhäute, vor allem die der Nase, quasi mumifiziert. Spätestens seit unserem Aufenthalt am [Titicaca-See](http://wittmann-tours.de/titicacasee-und-homestay-auf-amantani/) hatte die feuchtigkeitsarme Höhenluft sie vollkommen ausgetrocknet. Auch wenn wir nicht erkältet waren, so war das Resultat beim Naseputzen immer blutig und krustig, und wir freuten uns sehr auf das feuchte Amazonasklima. In der Tat, nach den Tagen im [Madidi Nationalpark](http://wittmann-tours.de/der-bolivianische-dschungel-im-madidi-nationalpark/) waren unsere Schleimhäute wieder rehydriert.
+
+## Evo Morales, weiser Staatenlenker oder doch korrupt?
+
+Unterwegs in Bolivien erfuhren wir nicht nur viel über historische Persönlichkeiten wie Simón Bolivar und Mariscal Sucre. Auch der amtierende Präsident [Evo Morales](https://de.wikipedia.org/wiki/Evo_Morales) war sehr präsent, er lächelte auf zahlreichen Plakaten oder auf Bildern in öffentlichen Einrichtungen. In den Medien und nach der Meinung der Menschen schwindet allerdings seine Beliebtheit. Dabei fing alles so gut an. Morales, Sohn eines Kokabauern, kam aus armen Verhältnissen und wurde trotzdem der erste indigene Präsident des Staates, the Bolivian Dream! Evo Morales hat Bolivien viele positive Impulse gegeben und das Land schien ein Beispiel dafür zu sein, dass ein verantwortungsvolles Staatsoberhaupt, das immer das Wohl des Volkes im Blick hat, gut für die Nation ist.
+
+![Boliviens Präsident Evo Morales ist seit Ende 2005 im Amt](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180602-105739-2122-683x1024.jpg)
+
+Als wir in Bolivien waren, bestand Unsicherheit darüber, ob Morales noch eine weitere Amtszeit regieren würde bzw. ob er überhaupt bei den bevorstehenden Wahlen 2020 erneut antreten könne. Für uns als Außenstehende sah es in der Tat so aus, als klammere sich Morales recht ausdauernd an die Macht. Und selbst wenn er der beste Präsident für Bolivien war, ist und sein würde, aktuell sehen die Fakten so aus: Eigentlich darf ein Präsident in Bolivien diese Funktion nur für zwei Amtszeiten bekleiden, so steht es in der eigens von Evo Morales auf den Weg gebrachten neuen Verfassung Boliviens. Morales befindet sich - je nach Auslegung - aktuell in seiner zweiten (wenn man erst ab der Verabschiedung der [neuen Verfassung](https://de.wikipedia.org/wiki/Bolivien#Verfassung) rechnet) oder sogar schon in der dritten Amtszeit. Ein Volksreferendum 2016 über eine weitere Amtszeit von Morales wurde negativ beschieden. Damit müsste er 2019 seinen Posten räumen. Angeblich versucht er aber trotzdem noch, die Verfassung zu seinen Gunsten zu ändern.
+
+## Vertrauen in die Staatsgewalt?
+
+Zu Beginn seiner Regierungsperiode war Morales beim Volk sehr beliebt gewesen. Inzwischen muss man jedoch sagen, dass der Präsident bei den Bolivianern [in Ungnade gefallen ist](https://www.nzz.ch/international/referendum-in-bolivien-evo-morales-steht-vor-der-niederlage-1.18699206), selbst im Altiplano, seiner politischen Hochburg. Einige Menschen, mit denen wir sprachen, berichteten von Korruptionsvorwürfen. Es werde gerade ein pompöser Präsidentenpalast gebaut und eine ehemalige Partnerin von Morales hätte sich ebenfalls [stark bereichert](http://www.dw.com/de/evo-morales-und-die-moral/a-19085745). Schade, dachten wir, denn Bolivien bräuchte einen integren Präsidenten an der Spitze, um das Vertrauen in die Zentralgewalt zu festigen bzw. überhaupt erst aufzubauen.
+
+![Das bolivianische Wappen](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180525-152759-1611-1024x683.jpg)
+
+Im Reiseführer lasen wir, dass die Menschen in Bolivien sich über Jahre und Jahrzehnte mit Streiks und Blockaden gegen wirtschaftliche Ausbeutung gewehrt, damit aber den Fortschritt im Land gelähmt hätten. Protestieren können die Bolivianer anscheinend effektiv. Oder aber sie nehmen ihr Schicksal auch heute noch gleich selbst in die Hand, ohne auf Unterstützung durch den Staat zu hoffen oder zu warten. Wir erinnerten uns nur an den Eintritt, den wir in [Copacabana](http://wittmann-tours.de/erste-eindruecke-aus-bolivien/) hatten bezahlen müssen, die [Blockade auf der Isla del Sol](http://wittmann-tours.de/erste-eindruecke-aus-bolivien/) oder die [Studentenproteste](http://wittmann-tours.de/das-volk-von-tiwanaku-die-mutterkultur-der-anden/) in El Alto. In La Paz und El Alto hingen in einigen Stadtteilen lebensgroße Puppen mit einem Strick um den Hals an Straßenlaternen. Eine klare Warnung, dass mit Einbrechern kurzer Prozess gemacht wird. Ein funktionierender Staat sieht für uns anders aus.
+
+## Bolivien kulinarisch
+
+Aber wenden wir uns lieber profaneren Dingen zu, nämlich der bolivianischen Küche, die wir bisher in unseren Berichten vernachlässigt haben. Boliviens Küche ist nicht so raffiniert wie die peruanische. Stattdessen erschien sie uns eher bodenständig wie in Ecuador. Trotzdem gibt es einige typische Gerichte, zum Beispiel [Silpancho](https://es.wikipedia.org/wiki/Silpancho) de Llama. Dabei handelt es sich um ein großes, sehr dünnes Stück Lamafleisch, welches mit Reis und Kartoffeln darunter, Tomaten- und Zwiebelstückchen, sowie einem oder zwei Spiegeleiern oben darauf serviert wird. Es erinnert damit entfernt an ein [Lomo a lo pobre](https://en.wikipedia.org/wiki/Lomo_a_lo_pobre).
+
+![Silpancho de Llama](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180525-180216-1613-1024x683.jpg)
+
+Ein weiterer bolivianischer Klassiker ist [Pique a lo macho](https://en.wikipedia.org/wiki/Pique_macho). Das Gericht ist in Bolivien sehr beliebt zur Bekämpfung eines Katers, schmeckt aber auch stocknüchtern gut. Vermischt werden Fleisch, Pommes frites, gekochtes Ei, Zwiebeln, Paprika und weiteres Gemüse. Ein wenig tat es uns dabei um die Pommes frites leid, da diese nicht mehr knusprig waren, sondern aufgeweicht. Dennoch eine leckere, herzhafte Speise, die meist in einer so großen Portion serviert wird, dass zwei Personen sie nicht ganz verdrücken können.
+
+![Pique a lo macho](http://wittmann-tours.de/wp-content/uploads/2018/12/APC_1587-1024x768.jpg)
+
+Außerdem gibt es in Bolivien einige interessante Getränke. Der bolivianische Schnaps ist [Singani](https://de.m.wikipedia.org/wiki/Singani), ein Traubendestillat, das auch pur nicht zu scharf schmeckt. Zusammen mit Ginger Ale wird Singani zum [Chuflay](https://es.wikipedia.org/wiki/Chuflay), dem angeblich beliebtesten Cocktail Boliviens. Typische nicht-alkoholische Getränke sind: [Api](<https://de.wikipedia.org/wiki/Api_(Getr%C3%A4nk)>), ein dickflüssiges, unglaublich lilafarbenes Maisgetränk, aromatischer [Tumbo](https://de.wikipedia.org/wiki/Passiflora_tarminiana)-Saft (südamerikanische Passionsfrucht) oder [Mocochinchi](https://en.wikipedia.org/wiki/Mocochinchi), ein kaltes Gebräu aus Zuckerrohrsaft und Zimtstangen, in dem ein etwas wabbeliger getrockneter Pfirsich schwimmt.
+
+![Mocochinchi](http://wittmann-tours.de/wp-content/uploads/2018/12/APC_1586-1024x768.jpg)
+
+## Die kleinen Dinge
+
+So aggressiv bzw. ambitioniert wie die Bolivianer oft im Straßenverkehr unterwegs waren, so langsam bewegten sie sich zu Fuß fort, zumindest für unser Empfinden. Wir liefen per pedes ständig auf Leute auf und überholten sie. Waren wir am Ende vielleicht doch so gut höhenangepasst, dass wir ein derart flottes Tempo vorlegen konnten? Vielleicht lag es aber auch nur daran, dass wir deutlich größer waren als die meisten Bolivianer, obwohl wir nach deutschen Maßstäben eher unter dem Mittelmaß liegen.
+
+![Unser kleinster bolivianischer Busfahrer ;)](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180605-140332-2339-1024x683.jpg)
+
+Bolivien war offensichtlich das materiell ärmere Land im Vergleich zu Ecuador und Peru, was es aber auf keinen Fall weniger sehenswert machte. Ganz im Gegenteil, an einigen Orten fühlte sich Bolivien sogar noch wie ein Geheimtipp an, den bisher nur wenige Reisende entdeckt haben.
+
+![Hasta luego, Bolivia!](http://wittmann-tours.de/wp-content/uploads/2018/12/CW-20180530-155056-3698-1024x683.jpg)
+
+Damit verabschieden wir uns (fast) aus dem spanischsprachigen Lateinamerika. Rückblickend war es ein großer Luxus, dass wir uns mit den Menschen in einer ihrer Landessprachen hatten verständigen können. Wie schmerzlich wir dies vermissen würden, war uns zum Zeitpunkt unserer Abreise noch nicht bewusst, aber schon in Brasilien reifte diese Erkenntnis rasch. Vorher machten wir aber noch einen Abstecher nach Lima, der Hauptstadt von Peru.

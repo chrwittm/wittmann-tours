@@ -1,0 +1,132 @@
+---
+title: 'Machu Picchu, entzaubert aber sehenswert'
+description: ""
+published: 2018-10-22
+redirect_from: 
+            - https://wittmann-tours.de/machu-picchu-entzaubert-aber-sehenswert/
+categories: "archäologisch, Inka, Intipunko, Jardin del Mandor, Lama, Machu Picchu, Peru, Peru, Peru Rail, Zug"
+hero: ../../../defaultHero.jpg
+---
+# Machu Picchu, entzaubert aber sehenswert
+
+Als wir uns Gedanken über unsere Reiseroute in Peru machten, fragten wir uns ernsthaft, ob wir wirklich nach Machu Picchu fahren wollten, da wir von den überhöhten Preisen und den Touristenmassen gehört hatten, die jeden Tag die Ruinen besuchen bzw. über den Inca Trail pilgern. Schließlich entschieden wir uns doch dafür, uns Machu Picchu anzusehen, schließlich ist es DAS Highlight von Peru?! Wir ließen also das touristische Programm über uns ergehen und haben es am Ende nicht bereut.
+
+![Machu Picchu, das Highlight von Peru?!](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-092053-0281-1024x683.jpg)
+
+<!--more-->
+
+## Neue Regeln, große "Vorfreude"
+
+Erst kurz vor unserer Ankunft in Peru erfuhren wir, dass für den Besuch in Machu Picchu neue Regeln in Kraft getreten waren. Nun werden nicht nur separate Tickets für einige begehrte Wanderungen verkauft, sondern beim Erwerb der normalen Eintrittskarten muss man sich auf eine der Kategorien morgens (6 bis 12 Uhr) oder nachmittags (12 bis 17:30 Uhr) festlegen. Die Anzahl der Tickets ist offiziell auf 2500 pro Tag begrenzt (prinzipiell vernünftig, aber in der Realität kommen deutlich mehr Besucher, z.B. über den Inca Trail oder Touranbieter, die Extra-Karten bekommen), d.h. man sollte sie so früh wie möglich kaufen. Einige Optionen, v.a. für die Wayna Picchu-Wanderung sind in der Hochsaison bis zu einem halben Jahr im Voraus ausverkauft…
+
+![Am besten im voraus kaufen: Das Machu Picchu-Ticket](http://wittmann-tours.de/wp-content/uploads/2018/09/IMG_2874-Edit-1024x732.jpg)
+
+Und so lauten die neuen Regeln in Machu Picchu: Essen und Trinken darf man auf dem Gelände nicht. Plastikwasserflaschen sind verboten, Wasser darf nur in wiederverwendbaren Behältern mitgebracht werden. Mitgebrachte Rucksäcke dürfen ein maximales Volumen von 20l nicht überschreiten. Eine Toilette befindet sich nur außerhalb des Eingangs, Wiedereintritt ist nicht erlaubt. In der archäologischen Stätte darf man sich nur in Begleitung eines zugelassenen Führers bewegen. Die guten Ideen sind erkennbar, aber war das wirklich ernst gemeint?
+
+![Auch das Bahnticket kauft man besten weit in voraus.](http://wittmann-tours.de/wp-content/uploads/2018/09/IMG_2869-Edit-1024x708.jpg)
+
+Unsere schlimmsten Befürchtungen in puncto Massenabfertigung schienen sich zu bestätigen. Wir sahen unseren Machu Picchu-Besuch schon auf eine 2-stündige Führung reduziert, da es im Vorfeld unmöglich war, zu erfahren, wie die Umsetzung in der Realität gehandhabt würde. Die sonst sehr hilfreiche Touristinfo [iPeru](https://www.peru.travel/de/) kannte auch nur die offiziellen Regeln, aber nicht deren Auslegung. Wir vermuteten natürlich, dass es in der Praxis anders aussehen würde, sonst hätte es bestimmt im Internet schon vernichtende Kommentare gehagelt. (Die Auflösung über die Situation vor Ort folgt unten.)
+
+## Peru Rail statt Inca Trail
+
+Der einzige Weg nach Machu Picchu für alle, die nicht über den Inca Trail wandern möchten, führt über den nächstgelegenen Ort Aguas Calientes (neuerdings auch Machu Picchu Pueblo genannt). Das einzige Transportmittel dorthin ist die Bahn. Eine Straßenanbindung gibt es nicht. Trotzdem werden von lokalen Reiseanbietern interessanterweise Auto/Bus-Transfers nach Aguas Calientes angeboten, dann muss man aber (angeblich) nach gut 7 Stunden Fahrt (von Cuzco aus) die letzten 2-3 Stunden an den Bahnschienen entlang zum Dorf laufen, um dort in den Zubringerbus nach Machu Picchu zu steigen.
+
+![Kein Hogwarts-Express, sondern der Inca Train von Perurail](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180509-070609-0214-1024x683.jpg)
+
+Es gibt zwei Zugunternehmen, die von Touristen benutzt werden dürfen. Bei den Tickets hat man die Auswahl zwischen den Kategorien „teuer“ und „noch teuerer“. Wir entschieden uns für die Variante "teuer" und zahlten stolze 230 US-Dollar pro Person (Cuzco - Aguas Calientes - Cuzco). Damit konnten wir 2 Monate im Voraus einige der letzten Tickets dieser Kategorie buchen und fuhren im sogenannten Vistadome. Die Wagen sahen von außen historisch aus, waren aber innen recht modern mit bequemen Sitzen und Panoramafenstern, sogar im Dach.
+
+![Innen sind die Züge modern und sehr bequem](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180509-082345-0232-1024x683.jpg)
+
+Wir hatten genügend Muße, den Blick aus den Panoramafenstern zu genießen, da das Tempo des Zuges eher beschaulich war. Für 92 Kilometer betrug die Fahrzeit gut 3,5 Stunden. So zog die interessante Landschaft an uns vorbei. Der Zug rollte durch das bäuerliche peruanische Hochland, vorbei an Maisfeldern und kleinen Dörfern. Dort war vom Glanz Cuzcos nichts mehr zu sehen. Die Mehrzahl der Häuser bestand aus unverputzten roten Backsteinziegeln mit einem sichtbaren Betonskelett. Die Straßen waren nicht asphaltiert, Kühe, Schafe, Alpakas und Lamas weideten auf den Wiesen und die Bauern gingen ihrer täglichen harten Arbeit nach. Dabei war es ein wenig surreal, dass drinnen im Wagen das elegant gekleidete Personal die Tische mit Stoffservietten und echtem Metallbesteck für den morgendlichen Snack deckte.
+
+![Draußen zieht die peruanische Realität vorbei.](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180509-081436-0226-1024x683.jpg)
+
+## Aguas Calientes oder Machu Picchu Pueblo
+
+Hinter [Ollantaytambo](https://en.wikipedia.org/wiki/Ollantaytambo) begann der Abstieg nach [Aguas Calientes](https://en.wikipedia.org/wiki/Aguas_Calientes,_Peru). Unser Startpunkt in Cuzco befand sich auf 3360 Metern, Aguas Calientes dagegen auf "nur" 2000 Metern. Die Gleise führten immer entlang des Rio Urubamba durch eine spektakuläre Schlucht. Die spärliche Hochland-Vegetation veränderte sich deutlich und wurde immer üppiger. Schließlich erstreckte sich dichter Wald an den Hängen der Berge, der uns an den [Nebelwald in Ecuador](http://wittmann-tours.de/ecuadors-nebelwald-morgens-auch-mit-bellavista/) erinnerte.
+
+![Die Bahnstrecke folgt immer dem Rio Urubamba](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180509-100446-0237-1024x683.jpg)
+
+Untermalt wurde die Fahrt von Panflötenmusik, gelegentlich unterbrochen von kurzen Durchsagen, die die Landschaft oder die Orte erläuterten, durch die wir gerade fuhren. Die Zugfahrt war durchaus gut inszeniert, so wie man sich bestimmt im peruanischen Tourismusministerium vorstellt, dass es den Touristen gefallen würde. Und jede Tour endet natürlich im obligatorischen Souvenirgeschäft ;). Diesmal gab es jedoch keinen Laden im Bahnhof von Aguas Calientes, sondern der Ausgang des Stationsgebäudes mündete direkt auf dem Kunsthandwerksmarkt (Mercado de Artesanias), auf dem eher Kitsch als Kunsthandwerk angeboten wurde. Etwas orientierungslos bewegten wir uns durch das Labyrinth der Stände auf der Suche nach dem Ausgang, in der Hoffnung, uns dann orientieren zu können. Nach einem Spießrutenlauf an wohl 150 Buden vorbei gelang es uns, den Markt zu verlassen. Wir überquerten eine Brücke und erreichten nach weiteren 400 Metern steil bergauf unser Hotel.
+
+![Aguas Calientes oder Machu Picchu Pueblo, klein aber trubelig](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180509-153714-0248-1024x683.jpg)
+
+Aguas Calientes zeigte sich auch in den nächsten Tagen mindestens so touristisch wie unser erster Eindruck. Alle 2 Meter wird man angesprochen: "Restaurant my friend, Comida tipica, Pizza, Parilla, Massage, Happy Hour, 4 for 1". Viele Restaurants erheben illegale "Steuern" ("Tax"), mit denen die vermeidlich niedrigen Preise erst beim Bezahlen der Rechnung angepasst werden. Offiziell leben im Dorf 1000 Menschen und jeden Tag kommen tausende Besucher, was will man also erwarten…
+
+## Der große Tag: Machu Picchu
+
+Genug der Vorrede, jetzt geht's nach Machu Picchu, für uns allerdings nicht so früh wie empfohlen wird. Unter dem Stichwort "beat the crowds", wird oft geraten, mit dem ersten Bus um 5:30 Uhr zu fahren. Am besten, man stellt sich ab 4 Uhr morgens an der Haltestelle an. Darauf hatten wir nun gar keine Lust ;). So saßen wir um 7:30 Uhr ohne Wartezeit und Schlangestehen im Bus, der uns die steilen, 400 Höhenmeter überwindenden Serpentinen hinauf nach Machu Picchu brachte.
+
+![Diese Serpentinen führen hinauf nach Machu Picchu (Blick Nähe Intipunko)](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-111643-2235-HDR-1024x683.jpg)
+
+Am Eingang des Geländes angekommen wartete schon ein Heer von Führern auf uns, die lautstark ihre Dienste anpriesen und uns ihre Ausweise unter die Nase hielten. Wir wählten keinen der Schreihälse, sondern Veronica, eine eher zurückhaltende Frau, die auch japanische Gruppen führte, was uns gleich sympathisch war. Sie erklärte uns, dass wir zunächst einen gemeinsamen 2-stündigen Rundgang machen würden und dass wir im Anschluss auf eigene Faust wieder eintreten dürften. Einlass war mit dem Morgen-Ticket bis 11:59 Uhr, wir dürften aber auch danach so lange drinnen bleiben, wie wir wollten.
+
+![Morgens war es noch etwas neblig und wolkig, Pech für alle, die früh aufgestanden waren ;)](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-072037-0257-HDR-1024x683.jpg)
+
+## Die Machu Picchu-Führung
+
+Bei der Führung erläuterte uns Veronica die Geschichte von Machu Picchu, zeigte uns die wichtigsten Gebäude und erklärte uns deren vermutete damalige Funktion. Vieles ist weiterhin [unklar und Spekulation](https://de.wikipedia.org/wiki/Machu_Picchu#Allgemeines). Die Archäologen nehmen mittlerweile an, dass die Stadt nur ca. 1000 Menschen ein Zuhause bot. Ein umfangreiches Wegenetz deutet auf eine gute Anbindung zu den Handelsverbindungen der Inka hin. Machu Picchu war wohl ein zeremonielles Zentrum, worauf mehrere Gebäude höchster Qualität hinweisen.
+
+![Machu Picchu mit dem Berg Huayna Picchu im Hintergrund](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-092042-2216-HDR-1024x683.jpg)
+
+Natürlich gibt es auch in Machu Picchu einen Sonnentempel, ein Observatorium und Wohnhäuser der Adeligen und Priester. Die Bedeutung der Gebäude konnte man an der Größe und Qualität der Bausteine ihrer Mauern ablesen. Der größte Fels war jedoch der sogenannte „Heilige Stein“, der die Silhouette des dahinterliegenden Berggipfels nachbildet. Unsere Führerin berichtete, dass viele Besucher dieses Monument der Inka berührten, um die Energie zu spüren.
+
+![Der heilige Stein](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-084500-2189-HDR-1024x683.jpg)
+
+## Um Machu Picchu herum
+
+Nach der Führung begannen wir unseren eigenen ergänzenden Rundgang. Unser erstes Ziel war die „Hut of the Caretaker“. Von dort aus kann man den klassischen Blick über Machu Picchu genießen, den sicher jeder schon einmal auf Postkarten oder Werbeplakaten gesehen hat.
+
+![Der klassische Machu Picchu Blick von der "Hut of the Caretaker"](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-102108-2220-HDR-1024x683.jpg)
+
+Anschließend wanderten wir zum Sonnentor (Intipunko). Um dorthin zu gelangen, geht man das letzte Stück des Inca Trail in umgekehrter Richtung bis zu den Ruinen des besagten Tores. Dies ist der Aussichtspunkt, an dem die tapferen Wandersleute Machu Picchu das erste Mal erblicken und von dort müssen sie nur noch bergab laufen. Für uns hieß das im Umkehrschluss: Es ging hinauf, von 2400 auf 2700 Meter. Durch die Höhe, den unebenen Weg und die Mittagshitze war die Wanderung erstaunlich anstrengend.
+
+![Das letzte Stück des Inka Trails war mit großen Steinen gepflastert](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-121015-0325-1024x683.jpg)
+
+Am Tor angekommen hatten wir in der Tat einen schönen Blick auf Machu Picchu und die umliegenden Berge. Während wir das Panorama auf uns wirken ließen, trudelten immer wieder Bezwinger des Inca Trails ein. Die amüsanteste Reaktion auf die Aussicht durften wir bei einer amerikanischen Wandersfrau miterleben, die sichtlich erschöpft ihren Führer fragte: "Oh, what is this?" Der Guide antwortete höflich: "This is Machu Picchu!" :)
+
+![Blick vom Sonnentor (Intipunko) auch Machu Picchu](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-115409-2248-HDR-1024x683.jpg)
+
+## Das i-Tüpfelchen
+
+Spätestens in Machu Picchu erschloss sich uns eine der elementaren Regeln des Tourismus: Alle Destinationen (selbst eine Weltklasse-Sehenswürdigkeit wie Machu Picchu) werden lustiger und interessanter, wenn sich dort auch Tiere befinden. [Nara](http://wittmann-tours.de/ausflug-nach-nara/) in Japan mit seinen heiligen Rehen ist ein exzellentes Beispiel und bei einem Spaziergang am [Donoperteich](https://de.wikipedia.org/wiki/Donoperteich) ziehen die Enten alle Aufmerksamkeit auf sich. In Machu Picchu waren es die freilaufenden Lamas, die im oberen Bereich der Ruinen und auf dem Inca Trail grasten und von den Besuchern bewundert und ausgiebig fotografiert wurden. Die Kameloide ließen die ihnen zuteil werdende Aufmerksamkeit mit der Gelassenheit von kameraerfahrenen Stars über sich ergehen. Ein weißes Baby-Lama wurde gar von einer entzückten Schar von Paparazzi verfolgt. Die Inka-Stätte schien darüber ganz in Vergessenheit geraten zu sein.
+
+![Eine Inka-Stätte für eine Lama](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-124519-2283-Edit-1024x683.jpg)
+
+Den Abschluss unseres Tages bildete die kurze Wanderung zur Inkabrücke (Puente del Inca). Die einfache Brücke, die man nicht betreten darf, ist dabei weniger das Highlight als die Landschaft. Weit unten in einer Schlucht windet sich der Rio Urubamba zwischen hohen Bergen hindurch. Man geht auf einem alten Inka-Pfad entlang eines steilen Abhangs. Machu Picchu selbst sieht man bei dieser Wanderung nicht, so gut ist es verborgen.
+
+![Die Inka-Brücke](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-131750-0332-1024x683.jpg)
+
+Auch ohne frühes Aufstehen zum Sonnenaufgang waren wir nachmittags rechtschaffend müde. So stiegen wir etwas erschöpft gegen 16:30 Uhr in den Bus ins Tal. Mona kam dabei überraschenderweise neben unserer Führerin Veronika zu sitzen, die sich ebenfalls auf dem Heimweg befand.
+
+## El Jardin del Mandor
+
+Es ist möglich, Machu Picchu in einem Tagesausflug von Cuzco aus zu besuchen. Wer mehr Zeit zur Verfügung hat, kann in Aguas Calientes übernachten. Wir verbrachten zwei Nächte dort. Da unser Zug am Abreisetag erst nachmittags fuhr, hatten wir zwei Möglichkeiten: Entweder Happy Hour ab 10 Uhr morgens mit vier Cocktails zum Preis von einem oder Besuch des Mandor-Gartens ([Jardin del Mandor](https://www.jardinesdemandor.com/)). Was ursprünglich als kleiner Spaziergang geplant war, entwickelte sich zu einem interessanten, halbtägigen Programm abseits der ausgetretenen Touristenpfade.
+
+![Cantua buxifolia: Die Nationalblume Perus](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180511-095552-2345-1024x683.jpg)![]()
+
+Der Garten liegt zu Fuß etwa eineinhalb Stunden von Aguas Calientes entfernt, das erste Drittel auf der Straße nach Machu Picchu, danach immer an den Bahnschienen entlang. Auf diesen fährt auch ab und zu ein Zug, allerdings mit maximal 30 bis 40 km/h, es ist also nie gefährlich.
+
+![Der Inka-Regional-Express](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180511-094151-2341-1024x683.jpg)
+
+Im Garten selbst folgten wir einem hübsch angelegten kurzen Wanderweg zu einem Wasserfall und einem Aussichtspunkt auf umliegende Berggipfel. Wie überall in der Umgebung des Rio Urubamba-Tals wucherte auch hier üppige Vegetation mit zahlreichen Pflanzenarten und Blüten. Durch den kleinen Park schlängelte sich ein Seitenarm des Flusses. Auch verschiedene Vögel sollte es geben. Auf der Wanderkarte prangte als Verzierung ein Bild des peruanischen Nationalvogels, des Cock-of-the-Rock. Dennoch staunten wir nicht schlecht, als wir in etwa auf der Hälfte des Weges tatsächlich einen prächtigen Cock-of-the-Rock entdeckten, kurze Zeit später gefolgt von weiteren kunterbunten Vögeln, dem [Relojero Andino](https://de.wikipedia.org/wiki/Blauscheitelmotmot) und einem [Grünhäher](https://de.wikipedia.org/wiki/Gr%C3%BCnh%C3%A4her).
+
+![Der Nationalvogel Perus: Der Cock of the Rock](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180511-103338-2363-1024x683.jpg)
+
+## Rückfahrt nach Cuzco
+
+Auf der Rückfahrt mit dem Inca Train wussten wir in etwa, was uns erwarten würde - dachten wir jedenfalls. Als dann aber auf einmal ein furchterregender peruanischer Teufel zu andiner Panflötenmusik durch den Gang tanzte und die Passagiere das Gruseln lehrte, staunten wir hingegen nicht schlecht. Dann folgte eine Modenschau, auf der das Zugpersonal diverse Kleidungsstücke aus Baby-Alpaka-Wolle vorführte. Vielleicht hatten wir uns mittlerweile mit dem ganzen Machu Picchu-Rummel abgefunden, auf jeden Fall fanden wir die Darbietung sehr unterhaltsam!
+
+![Der Nationalvogel Perus: Der Cock of the Rock](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180511-163137-0398-1024x683.jpg)
+
+## Hat es sich gelohnt?
+
+Abschließend können wir diese Frage mit einem klaren "Ja" beantworten. Trotz des touristischen Drumherum ist Machu Picchu sehr, sehr sehenswert. Sicher kam uns positiv zugute, dass wir die Inka-Stätte (eher zufällig) in der beginnenden Saison (Anfang Mai) besuchten. Im Juli oder August sollen die Besucherzahlen doppelt so hoch sein, wie wir sie erlebten. Auch das Wetter war zum Glück sehr gut und es gab (noch) keine Moskitos.
+
+![Die alte Inka-Stadt wurde prächtig ausgegraben](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-073859-0269-1024x683.jpg)
+
+Was war jetzt aus den schönen neuen Regeln geworden? Theorie und Praxis wichen in der Tat voneinander ab. Es gab Morgen- und Nachmittagstickets und mit einem Morgenticket durfte man die Anlage wirklich nach 12 Uhr nicht mehr betreten, was vor allem deshalb entscheidend ist, da sich die einzige Toilette vor dem Eingang befindet. Rucksäcke wurden nicht auf Größe oder Inhalt kontrolliert, auch Plastikflaschen wurden nicht angemahnt. Auf dem Gelände gab es keine Mülleimer. Stattdessen beobachteten viele Wächter die Besucher auf Schritt und Tritt. Wenn die Regeln (und das Personal) eins bewirkt haben, dann ist es, dass man in der ganzen Anlage keinen Müll sah, was wir sehr positiv fanden. Die Organisation rund um den Besuch wirkte sehr professionell. Die Züge waren pünktlich, wir mussten nicht auf den Bus warten und nicht in langen Schlangen stehen.
+
+![Ein letzter Blick von oben, danach sind wir abgestiegen](http://wittmann-tours.de/wp-content/uploads/2018/09/CW-20180510-124240-2274-HDR-1024x683.jpg)
+
+Ob einem der Besuch von Machu Picchu mehrere hundert Dollar wert ist, muss jeder selbst für sich entscheiden. Diese Ausgabe hat man aber schon vergessen, wenn man dort ist, da man sowieso alles lange im Voraus buchen muss ;). In unserer Erinnerung wird uns der Ort als sicherlich entzauberte, aber dennoch sehr sehenswerte Inka-Stadt bleiben. Seine Lage in den Bergen und das umgebende Panorama sind atemberaubend und weltweit einzigartig.

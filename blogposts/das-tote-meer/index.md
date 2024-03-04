@@ -1,0 +1,44 @@
+---
+title: 'Das Tote Meer'
+description: ""
+published: 2019-11-24
+redirect_from: 
+            - https://wittmann-tours.de/das-tote-meer/
+categories: "Baden, Jordanien, Jordanien, Salzwasser, tiefster Punkt, Totes Meer"
+hero: ../../../defaultHero.jpg
+---
+# Das Tote Meer
+
+Auf eine Art ist auch das Tote Meer ein [biblischer Ort](http://wittmann-tours.de/jordaniens-biblische-orte), es wird [im Alten Testament erwähnt](https://de.wikipedia.org/wiki/Totes_Meer#Antike_Darstellungen). Fischfang war dort offensichtlich nicht möglich, aber man konnte sogenanntes "Erdpech" gewinnen, das in der Antike zur Mumifizierung von Verstorbenen verwendet wurde, und zeitweise fand über sein Wasser Schiffsverkehr zum Transport von Agrarprodukten statt. So ist auch auf der [Mosaikkarte von Madaba](https://de.wikipedia.org/wiki/Mosaikkarte_von_Madaba) ein Boot im Toten Meer abgebildet. Heutzutage wissen wir, dass das Gewässer biologisch gesehen nicht ganz tot ist. Und es findet eine Nutzung statt: Am südlichen Teil des Sees werden Mineralien abgebaut und der Tourismus hat das Tote Meer entdeckt, zur Behandlung von Hautkrankheiten und zum reinen Vergnügen.
+
+![Blick über das Tote Meer am Dead Sea Panorama](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180926-152904-2993-Edit-1024x671.jpg)
+
+<!--more-->
+
+## Baden im Toten Meer
+
+Das Tote Meer ist nicht nur landschaftlich sehr sehenswert, auch das Baden ist ein Erlebnis. Das Wasser hat eine Temperatur wie in der Badewanne und seine Konsistenz weicht von dem des Meeres oder dem eines Pools ab. Es ist zähflüssiger, schillert schlierig und ein Geruch nach Schwefel hängt über der Landschaft. Als wir uns ins Wasser bewegten, fiel das Ufer rasch ab. Nach wenigen Metern standen wir bis zur Brust im Wasser, aber wir mussten nicht selbstständig mit Schwimmbewegungen beginnen. Einen Schritt weiter fingen wir an, im Wasser zu schweben und wie zwei Korken auf der Oberfläche zu treiben. Am bequemstem war es, sich ins Wasser zu setzen (ob man wollte oder nicht schwammen die Beine unter einem nach oben weg) und sich von der Lake tragen zu lassen. Es war ein riesiger Spaß!
+
+![Ertrinken fast unmöglich, das archimedische Prinzip funktioniert.](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180926-130300-0316-1024x683.jpg)![]()
+
+Zügig vorwärts schwimmen kann man nicht, da der Auftrieb zu stark ist und damit der Schwerpunkt des Badenden zu hoch liegt. Versucht man, Brust zu schwimmen, passiert Folgendes: Man streckt sich nach vorne, versucht den ersten Schlag mit den Beinen, aber es funktioniert nicht richtig. Der Auftrieb drückt einem die Beine hoch, so dass man die Unterschenkel anwinkelt, sie aus dem Wasser streckt und ins Hohlkreuz geht, um das Gesicht nicht ins Wasser tauchen zu müssen, da die hohe Salzkonzentration höllisch in den Augen brennen würde. Um nun doch vorwärts zu kommen, ist allenfalls eine Hunde-Paddeltechnik möglich, ineffektiv und unbequem. Komfortabel in eine Zielrichtung rudern kann man nur im Wasser sitzend mit Armbewegungen neben dem Körper.
+
+![Schwarze Kosmetik: der Heilschlamm des Toten Meeres](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180926-121834-0312-1024x683.jpg)
+
+Aus medizinischer Sicht hilft das Salzwasser bei Hautkrankheiten wie atopischer Dermatitis und Psoriasis. In der Tat trafen wir einige Badegäste, die für mehrere Wochen eine Kur am Toten Meer machten. Wellness für Alle bietet der Schlamm des Toten Meeres. Man darf sich mal so richtig dreckig machen und sich am ganzen Körper damit einreiben ;). Ist der Schlamm in der Sonne getrocknet, duscht man ihn am Strand ab und lässt sich danach noch einmal im Toten Meer treiben, umgeben von Stille, der glatten Oberfläche des warmen Sees und den Bergen in dunstiger Ferne.
+
+## Stirbt das Tote Meer?
+
+Wie viele natürliche Landschaften dieser Welt ist auch das Tote Meer bedroht: Es könnte sterben. Durch die intensive Nutzung der Zuflüsse zur Bewässerung erreicht immer weniger Flüssigkeit das Tote Meer. Jedes Jahr verdunstet mittlerweile wesentlich mehr Wasser aus dem Toten Meer, als hineinfließt. Damit geht sein Pegel derzeit um gut einen Meter pro Jahr zurück. Wenn es in diesem Tempo weitergeht, könnte es in ca. 50 Jahren kein Totes Meer mehr geben.
+
+![Der Rückgang des Wasserstandes ist bestürzend. Im Jahr 2000 befand sich der Strand noch an dieser Stelle.](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180926-133202-0334-1024x683.jpg)
+
+An der Hotelanlage, wo wir als Tagesgäste im toten Meer badeten, standen am Weg zum Strand einige Schilder, die diesen Rückgang dokumentierten und für uns erst sichtbar machten. Der offizielle Wasserstand liegt zur Zeit bei 428 Meter unter dem Meeresspiegel, Tendenz fallend.
+
+## Der tiefste Punkt unserer Reise
+
+Damit war das Tote Meer auch der tiefste Punkt unserer Weltreise. Ist es auch der tiefste Punkt der Welt? Es kommt darauf an, welche Kriterien man in die Überlegungen einbezieht. Das Tote Meer ist der [tiefste Punkt an Land](https://www.sueddeutsche.de/wissen/serie-erde-extrem-teil-12-420-meter-unter-dem-meeresspiegel-trocken-1.579582). Steigt man jedoch in Höhlen hinab oder taucht auf den Grund der Meere, dann geht es noch [bedeutend tiefer](https://www.redbull.com/de-de/die-acht-tiefsten-orte-der-erde). Der Grund des [Marianengrabens](https://de.wikipedia.org/wiki/Marianengraben) liegt ca. 11.000m unter dem Meeresspiegel bzw. 10580 Meter unter dem Toten Meeresspiegel.
+
+![Der Tote Meeresspiegel liegt zur Zeit bei ca. 428 Metern unter dem Meeresspiegel.](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180926-115546-2978-1024x683.jpg)
+
+Für uns war der Besuch des Toten Meeres ein außergewöhnliches Erlebnis. Das Schweben im Salzwasser widerspricht unserer sonstiger Erfahrung der physikalischen Gesetze und ist unvergesslich. Low Place, Highlight!

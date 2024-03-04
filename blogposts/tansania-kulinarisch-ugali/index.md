@@ -1,0 +1,56 @@
+---
+title: 'Tansania kulinarisch: Ugali'
+description: ""
+published: 2019-09-22
+redirect_from: 
+            - https://wittmann-tours.de/tansania-kulinarisch-ugali/
+categories: "Essen, Indisch, kulinarisch, Markt, Tansania, Tansania, Ugali"
+hero: ../../../defaultHero.jpg
+---
+# Tansania kulinarisch: Ugali
+
+Ebenso wie auf Madagaskar war es in Tansania schwierig, wirklich einheimische Kost zu probieren. Auf Safari servierten unsere Gastgeber internationale Küche und viele Restaurants haben indische Besitzer. Um Tansania authentisch kulinarisch zu erleben, blieben damit fast nur die lokalen Märkte. Das zentrale Element in der Küche Tansanias ist dabei Ugali.
+
+![Unser erstes Ugali auf einem Markt in Dar es Salaam](http://wittmann-tours.de/wp-content/uploads/2019/08/APC_1994-1024x768.jpg)
+
+<!--more-->
+
+## Ugali morgens, mittags, abends
+
+Böse Zungen könnten behaupten, man verpasse nicht viel, denn Tansania hatte vielleicht das unspannendste Essen, das wir auf unserer Reise genossen haben. Ugali dominiert die [Küche Tansanias](https://de.wikipedia.org/wiki/Ugali) morgens, mittags und abends. So wie die Madegassen vom Reis leben, ernähren sich die Tansanier von Ugali. Während die ehemalige französische Kolonialmacht auf Madagaskar die traditionelle Küche überaus positiv ergänzt hat, blieben die Deutschen und Engländer Tansania kulinarische Highlights schuldig ;). Aber was ist es nun, dieses Ugali?
+
+![Bänke, Sonnenschirme und Ugali](http://wittmann-tours.de/wp-content/uploads/2019/08/CW-20180831-133706-8484-1024x683.jpg)
+
+Ugali ist ein sehr dicker Getreidebrei. Meist wird Maismehl in Wasser gekocht, der eine ähnliche Konsistenz hat wie Knödel. Zum ersten Mal aßen wir Ugali auf dem Markt in Dar es Salaam. Die tansanischen Mama Lishas ("Feeding Ladies"; also die Frauen, die gekochte Mahlzeiten auf dem Markt verkaufen) hatten kleine Stände mit Tischen, Bänken und einem Sonnenschirm. Die großen Töpfe mit Reis und Ugali standen auf dem Boden. Die Beilagen (Bohnen, Gemüse und etwas Fleisch) befanden sich abgedeckt auf dem Tisch. Wir machten die Runde, schauten in die Töpfe und bestellten an einem Stand eine sehr großzügige Portion, die wir uns teilten.
+
+## Gegessen wird mit der (rechten) Hand
+
+Zum Servieren stach die freundliche Mama das Ugali mit einem kleinen Teller von der großen Masse ab und gab es auf unser Geschirr. Die Beilagen servierte sie mit einem Löffel, gegessen wurde aber selbstverständlich mit der Hand. Jedoch galt auch hier: Vor dem Essen Hände waschen. Frisches Wasser (allerdings keine Seife) hierfür gab es in einer Kanne auf dem Tisch.
+
+![Die Zubereitung fand komplett im Freien statt.](http://wittmann-tours.de/wp-content/uploads/2019/08/CW-20180831-133713-8485-1024x683.jpg)
+
+Wir nahmen also etwas Ugali (mit der rechten Hand), tauchten es in die Soße und versuchten, auch etwas Beilage auf dem Weg zum Mund mit zu balancieren. Die einheimischen Gäste hatten eine ausgereifte Technik und formten ebenmäßige kleine Ugali-Bällchen. Hier ist wohlgemerkt Ugali das Hauptgericht und Fleisch nur die Beilage, umgekehrt als bei uns zu Hause, wo wir Schnitzel mit Pommes frites oder Kassler mit Klößen essen.
+
+![Wie die Menschheit isst (Zahlen von hier und hier)](http://wittmann-tours.de/wp-content/uploads/2019/08/Wie-die-Welt-isst-1024x631.jpg)![]()![]()
+
+Mit der Hand zu essen war für uns recht ungewohnt, ist aber weltweit sehr verbreitet und eher die Regel als die Ausnahme. Echte Statistiken haben wir nicht gefunden (für sachdienliche Hinweise würden wir uns über Kommentare freuen), aber je nach Quelle essen die Hälfte bis zwei Drittel der Menschheit mit den Händen. Dazu kommt, dass das westliche Essbesteck eigentlich eine relativ moderne Erfindung ist.
+
+## Ugali mal anders?
+
+Die Mahlzeit hat uns gut geschmeckt und der Erlebnisfaktor war beim ersten Mal natürlich enorm. Objektiv betrachtet ist das Ugali selbst aber eher geschmacksneutral. Ein paar Gewürze oder Kräuter hätten vielleicht Abhilfe schaffen können, das erlebten wir jedoch nirgends. Wir waren auch etwas verwundert, dass wir kein einziges Restaurant fanden, das ausgefallen tansanisch kochte und Ugali einmal anders präsentierte. Möglich? Bestimmt. Eine Marktlücke? Vielleicht.
+
+![Exklusiv-Ugali am Flughafen von Dar es Salaam](http://wittmann-tours.de/wp-content/uploads/2019/08/APC_2027-1024x768.jpg)
+
+Das exklusivste Ugali aßen wir am Flughafen in Dar es Salaam auf dem Zwischenstopp unserer Reise von Ruaha nach Arusha. Das Restaurant war das einzige im Terminal. Es gab Ugali mit einem Hühnchenschlegel, etwas Gemüse und einer Suppe. Dicht gefolgt in puncto Raffinesse wurde es vom Ugali, das wir in unserem Hostel in Arusha an einen Abend aßen. Ein riesiger Klumpen Ugali war flankiert von zwei Sorten Gemüse und frischer aromatischer Avokado.
+
+![Eine Riesenportion Ugali mit Gemüse für jeden im Guest House in Arusha](http://wittmann-tours.de/wp-content/uploads/2019/08/APC_2032-1024x768.jpg)
+
+## Indisches Essen überall
+
+Dass die historischen Kolonialmächte keine kulinarischen Spuren hinterließen, ist vielleicht auch kein großer Verlust ;). Heutzutage prägen Inder die Restaurantszene in Tansania maßgeblich. Sowohl auf Sansibar als auch in Dar es Salaam befanden sich die Mehrzahl der besseren Restaurants fest in indischer Hand. Selbst im Hotel in Dar es Salaam bestand der bessere Teil des Frühstücks aus indischen Gerichten.
+
+![Viele Restaurant boten indische Küche an und meistens ausnehmend gut.](http://wittmann-tours.de/wp-content/uploads/2019/08/APC_1978-1024x768.jpg)
+
+In Dar es Salaam gab es sogar eine Straße mit indischen Tempeln und einem Laden, der indische Süßigkeiten verkaufte! Zu unserer großen Freude konnten wir dort frische Barfis, Cashew-Marzipan und andere Leckereien erstehen :).
+
+![Wie im siebten Himmel: Indische Süßigkeiten in Dar es Salaam](http://wittmann-tours.de/wp-content/uploads/2019/08/CW-20180901-115823-8530-1024x683.jpg)

@@ -1,0 +1,54 @@
+---
+title: 'Die filigranen Mosaike von Madaba'
+description: ""
+published: 2019-11-10
+redirect_from: 
+            - https://wittmann-tours.de/die-filigranen-mosaike-von-madaba/
+categories: "Geschichte, Jordanien, Jordanien, Madaba, Mosaik, Mosaike"
+hero: ../../../defaultHero.jpg
+---
+# Die filigranen Mosaike von Madaba
+
+Madaba ist eine Kleinstadt 30km südwestlich von Amman. Verkehrsgünstig gelegen ist die Stadt der eigentlich bessere Standort für viele Ziele rund um die Hauptstadt und es gibt dort selbst viel zu sehen. Madaba ist ein biblischer Ort ("[Medaba](https://de.wikipedia.org/wiki/Madaba#Geschichte)") und hat viele Völker kommen und gehen gesehen. Am berühmtesten ist die Siedlung allerdings für ihre Mosaike aus dem ersten bis sechsten Jahrhundert nach Christus. Interessanterweise besteht die Bevölkerung der Stadt zu über 95% aus Christen.
+
+![Die Städte Rom, Gregoria und Madaba, im Mosaik als Schicksalsgöttin Tyche dargestellt.](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20181002-162150-0583-1024x683.jpg)![]()
+
+<!--more-->
+
+## Madaba, die Stadt der Mosaike
+
+Warum es ausgerechnet in Madaba so viele gut erhaltene Mosaike gibt, mag erstmal rätselhaft erscheinen, könnte seine Ursache aber in der Geschichte des Ortes haben. Es liegt vermutlich nicht daran, dass ausgerechnet in dieser Stadt die besten Mosaikkünstler gewirkt oder dass dort früher lauter begeisterte Mosaikliebhaber gewohnte hatten. Nein, wahrscheinlich existierten in Amman und anderen Siedlungen der Region ähnlich kunstvolle Böden, aber paradoxerweise bewahrte in Madaba eine Naturkatastrophe die Mosaike. 746 zerstörte ein Erdbeben die Gebäude der Stadt, sie wurde aufgegeben und geriet in Vergessenheit. Erst 1880 wurde der Ort von Christen neu besiedelt und man fand die so erstaunlich gut erhaltenen Mosaike unter den Trümmern der Häuser.
+
+![Das berühmteste Mosaik von Madaba: Die Karte des Heiligen Landes](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180925-112858-0178-1024x692.jpg)
+
+Wenn man sich nur ein Mosaik ansehen möchte, (und das tun zahllose Busladungen von Touristen), dann ist DAS Mosaik [eine Karte des Heiligen Landes](https://de.wikipedia.org/wiki/Mosaikkarte_von_Madaba) in der St.-Georgs-Kirche ("Church of the Map"). Sie zeigt kartografisch für damalige Verhältnisse recht exakt die Lage der heiligen Orte, Jerusalem, die Taufstelle Jesu etc. Dabei sind die Orte aus der Vogelperspektive dargestellt und es ist problemlos vorstellbar, dass sie in früherer Zeit Pilgern als Wegweiser gedient hatte.
+
+![Die Darstellung des Heiligen Landes schmückt den Fußboden der St. Georgs-Kirche.](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180925-113135-2927-1024x683.jpg)
+
+Dieses Mosaik war, abgesehen von Petra, der wohl mit Abstand touristischste Ort in Jordanien. Immer wieder entleerten sich vor der Kirche Reisebusse, es gab separate kleine Räume, in denen die Führer ihre Vorträge über die Karte des Heiligen Landes halten konnten und kurze Zeit später waren die Horden auch schon auf der Weiterreise.
+
+## Weitere Mosaike
+
+Insgesamt kann man in Madaba Hunderte von Mosaiken anschauen, die in der Vergangenheit die Fußböden der Kirchen oder der Häuser der reichen Oberschicht geziert hatten. Die Symbolik reicht von griechischer und römischer Mythologie über christliche Motive bis hin zu geometrischen Ornamenten aus muslimischer Zeit. Auffällig war, dass in einigen Mosaiken die Gesichter von dargestellten Personen und teilweise auch die Abbilder von Tieren, teils durch die grobe Entfernung der Steinchen, teils durch kunstvolle Umgestaltung, getilgt worden waren (ohne das ganze Mosaik zu zerstören). Hintergrund hierfür war nicht nur das [Bildverbot im Islam](https://de.wikipedia.org/wiki/Bilderverbot_im_Islam), sondern auch der [byzantinische Bilderstreit](https://de.wikipedia.org/wiki/Byzantinischer_Bilderstreit), die zu Strömungen von Ikonoklasmus geführt hatten.
+
+![Die Kirche der Jungfrau Maria: Das Mosaik wurde im Jahre 767 mit rein geometrischem Muster erneuert.](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20181002-162558-0590-1024x683.jpg)
+
+Viele Mosaike wirkten etwas blass, obwohl manchmal lebhafte Szenen dargestellt waren. War das schon immer so oder nagte hier der Zahn der Zeit? Nein, es war eher der Staub der Gegenwart. In der Apostelkirche zeigte uns ein Wärter, wie die Mosaike wirklich aussahen. (Ein Archäologe sollte vermutlich den Rest dieses Absatzes aus konservatorischen Gründen überspringen.) Er winkte uns zu sich und sprühte ein wenig Wasser über einen kleinen Teil des Boden. Wie durch Geisterhand fingen die dargestellten Rehe beinahe zu leuchten an, so viel kontrastreicher waren sie geworden. (Und hoffentlich bleiben sie das auch trotz des bestimmt regelmäßig stattfindenden Schauers).
+
+![Ein paar Spritzer Wasser brachten die Farben des Jahrhunderte alten Mosaiks wieder zum Leuchten.](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180925-153210-0236-1024x707.jpg)
+
+## Die Kirche Johannes des Täufers
+
+Eine weitere spannende Sehenswürdigkeit war die Kirche Johannes des Täufers ("The Church of the Beheading of St John"). Auch dort gab es Mosaike zu sehen, aber die Kirche an sich war allein schon dadurch interessant, dass ihre Besichtigung einem kleinen Abenteuerparcours glich. Die Tour fing in den Gewölben des Untergeschosses an, wo die Reste eines uralten moabitischen Brunnens, - natürlich - Mosaike und die Geschichte der [Enthauptung von Johannes dem Täufer](https://en.wikipedia.org/wiki/Beheading_of_John_the_Baptist) in Bildern zu sehen waren. Anschließend führte der Weg durch schmale verwinkelte Gänge und über Stiegen in das Hauptschiff der Kirche und zu guter Letzt hoch auf den Glockenturm.
+
+![Die Kirche Johannes des Täufers (The Church of the Beheading of St John) in Madaba](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180925-134346-2944-1024x683.jpg)
+
+Beim Aufstieg erklommen wir enge Treppen, direkt an den Seilen vorbei, mit denen die Glocken geläutet werden konnten. Die Versuchung war groß, aus Versehen daran zu ziehen, aber das Verbotsschild war eindeutig: "Do not ring the bells!" Es hätte aber auch wirklich unabsichtlich passieren können, dass wir mit unseren Rucksäcken auf den schmalen Stiegen die Glocken angestoßen hätten.
+
+![Die Glocken der Kirche Johannes des Täufers](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180925-133811-2940-1024x683.jpg)
+
+Belohnt wurde der Aufstieg mit einem grandiosen Ausblick über Madaba. Die Kirche war auf dem höchsten Punkt der Stadt erbaut worden.
+
+![Blick über Madaba. Im Zentrum die König Hussein bin Talal Moschee](http://wittmann-tours.de/wp-content/uploads/2019/10/CW-20180925-132956-2933-1024x683.jpg)
+
+Unser Aufenthalt in der recht entspannten Stadt Madaba und die Erkundung der vielfältigen Mosaike hat uns sehr gut gefallen. Für einen vollständigen Stadtrundgang mit Besichtigung der verschiedenen Sehenswürdigkeiten hatten wir uns zwei Tage Zeit genommen. Sehr amüsiert haben wir uns, als uns eine Touristin auf der Straße nach dem Weg fragte: "Could you tell me where to find the mosaic, please?" Worauf wir etwas verwundert zurückfragten: "Which one are you looking for? There are hundreds in the city."

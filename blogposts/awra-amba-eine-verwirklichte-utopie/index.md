@@ -1,0 +1,78 @@
+---
+title: 'Awra Amba - eine verwirklichte Utopie?'
+description: ""
+published: 2020-03-22
+redirect_from: 
+            - https://wittmann-tours.de/awra-amba-eine-verwirklichte-utopie/
+categories: "Arbeit, Äthiopien, Äthiopien, Awra Amba, Ethik, Gemeinschaft, Gleichberechtigung, Kooperative, Religion, Solidarität"
+hero: ../../../defaultHero.jpg
+---
+# Awra Amba - eine verwirklichte Utopie?
+
+Auf der Weiterfahrt von [Bahir Dar](http://wittmann-tours.de/bahir-dar-und-die-wasserfaelle-des-blauen-nil) nach Gondar besuchten wir die Gemeinschaft von Awra Amba. Das [kleine Dorf](https://de.wikipedia.org/wiki/Awra_Amba) stellt mit seinem Gesellschaftsentwurf eine Art Paralleluniversum zur Lebensrealität in Äthiopien dar. Es herrscht gelebte Gleichberechtigung der Geschlechter, es gibt keine Religion und die Menschen arbeiten zusammen für den kollektiven Wohlstand. Durch dieses ungewöhnliche Konzept konnte sich Awra Amba auch wirtschaftlich entwickeln. Immer wieder findet man Beiträge über die Gemeinschaft in den internationalen Medien (z.B. [hier](https://www.sr.de/sr/sr2/themen/panorama/20190623_gemeinde_awra_amba_aethiopien100.html)) und es gibt sogar eine [eigene "Hochglanz"-Website](http://visitawraamba.com/), die, geschmückt von den Logos renommierter Medien, die Geschichte von Awra Amba erzählt. Man könnte den Eindruck gewinnen, dort wäre ein Geheimrezept gefunden worden, wie sowohl gesellschaftliche wie auch wirtschaftliche Probleme gelöst werden könnten. Das wollten wir mit eigenen Augen sehen.
+
+![Willkommen in Awra Amba!](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-135657-2042-1024x683.jpg)
+
+<!--more-->
+
+## Willkommen in Awra Amba
+
+Ähnlich wie im [vorherigen Artikel](http://wittmann-tours.de/die-kloester-auf-der-zeghie-halbinsel) über die äthiopischen Heiligen und die äthiopisch-orthodoxen Traditionen müssen wir auch hier sozusagen einen Disclaimer voranstellen. Wir haben Awra Amba nur für wenige Stunden besucht, weil wir die zugrundeliegenden Ideen verstehen wollten, die Organisationsform und die Lebensweise der Gemeinschaft. In unseren Bericht ist sicher unwillkürlich unsere Interpretation eingeflossen, sowohl von dem, was wir in Awra Amba gesehen haben, als auch von Äthiopien allgemein. Letztendlich schildern wir nur die subjektiven Eindrücke von zwei Reisenden.
+
+![Einige Grundgedanken der Gemeinschaft von Awra Amba](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-104951-2007-1024x683.jpg)
+
+In Awra Amba angekommen wurde uns ein lokaler Führer zugewiesen und wir hatten die Möglichkeit, mit dem Gründer des Dorfes, [Zumra Nuru](https://www.ju.edu.et/?q=zumra-nuru), in einem Haus zu sprechen, das man als Besucherzentrum bezeichnen könnte. An den Wänden hingen Collagen mit inspirierenden Gedanken wie "Doing a "woman's job" does not change my sex, it changes my ignorance". Zumra Nuru erklärte uns die Ideen von Awra Amba auf Amharisch, unser Führer übersetzte ins Englische. Er legte uns die Grundsätze der Gemeinschaft dar, die auf den Werten Toleranz, gegenseitigem Respekt, Ehrlichkeit, Solidarität und Gewaltlosigkeit basiert.
+
+## Die Abwesenheit von Religion
+
+Ein wesentlicher Grundgedanke der Gemeinschaft ist die Tatsache, dass in Awra Amba keine Religion ausgeübt wird. Dies ist vor allem in Äthiopien äußerst ungewöhnlich. Stattdessen gelten ethische Verhaltensgrundsätze, nach denen die Dorfbewohner respektvoll miteinander umgehen und sich jeder vorbildhaft benehmen solle. Die Menschen glauben zwar an einen Schöpfer. Da aber jede Religion ihn mit einen anderen Namen benenne, würden sie ihm keinen weiteren geben. Jeder Mensch der Gemeinschaft kann direkt mit Gott reden, aber wie, wo, wann und ob überhaupt, das sei eine private Angelegenheit.
+
+![Die Goldene Regel aller Religionen: Behandele alle Menschen, wie Du selbst behandelt werden möchtest.](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-113606-2010-739x1024.jpg)
+
+Das wirkte fast ein wenig protestantisch und sehr aufgeklärt. Nach unserer Interpretation waren wohl die rigiden Vorgaben der äthiopisch-orthodoxen Kirche ein wesentlicher Aspekt als Auslöser für die Liberalisierung der Religion in Awra Amba. Der traditionelle äthiopische Glaube zwängt die Menschen in ein enges Korsett und verlangt ihnen viel Zeit ab - Zeit, während der man nicht arbeiten kann. Ein äthiopisch-orthodoxer Gottesdienst dauert mehrere Stunden, häufig finden Feste verschiedener Heiliger statt, es gibt komplexe Fastenregeln. Im Sinne der Produktivität sind dies eher hinderliche Rahmenbedingungen. Daher werden in Awra Amba konsequenterweise auch keine Feiertage begangen. Nur Neujahr wird gefeiert, dies ist gleichzeitig auch der Jahrestag der Kooperative. Der Fokus liegt damit eindeutig auf dem Leben im Diesseits, nicht in der Hoffnung auf ein Leben nach dem Tod im Paradies.
+
+![Zumra Nuru, der Gründer von Awra Amba](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-113727-2012-844x1024.jpg)
+
+Trotz der nominellen Abwesenheit von Religion konnten wir uns des Eindrucks nicht erwehren, dass Zumra Nuru selbst für die Gemeinschaft eine Art Guru darstellte. Er predigte nicht über die Bibel, sondern redete über seine Ideen, seine Lehren. Ihm wird nachgesagt (so steht es im Besucherzentrum geschrieben), er habe bereits als zweijähriger wie ein Erwachsener geredet. Im Alter von 4 Jahren soll er zum ersten Mal die folgenden Themen angesprochen haben: Gleichberechtigung von Frauen, Rechte von Kindern, Hilfe für Menschen in Not, bösartiges Reden unter den Menschen. Allein durch sein Äußeres inszenierte er sich selbst. Er trug eine auffällige grüne Kopfbedeckung mit wollenen Zotteln, die uns, ohne dass es despektierlich klingen soll, an eine altmodische Badekappe erinnerte. Diese Mütze schien sein Markenzeichen zu sein, er ist auf allen Bildern mit ihr dargestellt.
+
+## Die Gemeinschaft
+
+Somit gab es im Dorf keine Kirche und keinen Tempel, stattdessen stand eine Bibliothek im Zentrum des Dorfes. Die Gemeinschaft legt großen Wert auf die Ausbildung der Kinder (obwohl oder weil Zumra Nuru Analphabet ist). Außerdem betrieben die Dorfbewohner ein Altersheim. Die Menschen, die dort lebten, konnten nicht mehr an der kommunalen Arbeit teilnehmen und wurden versorgt. Die Kooperative ist übrigens geschlossen. Man kann nicht einfach nach Awra Amba kommen und beitreten. Wer in Awra Amba leben möchte, muss offiziell in die Gemeinschaft aufgenommen werden und sich dem Regelkodex unterwerfen. Wer den Vorschriften nicht folgt, wird ausgestoßen, beispielsweise, wenn man dreimal beim Trinken erwischt wurde. (Der Konsum von Drogen, Alkohol, Zigaretten und interessanterweise auch Kaffee ist verboten.)
+
+![In der Schule von Awra Amba](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-114326-2017-1024x683.jpg)
+
+Die Mitglieder teilen sich in 2 Gruppen auf: die Gemeinschaft (Community) und die Kooperative. Die Gemeinschaft umfasst alle Menschen in Awra Amba, die die gleichen Werte und einen ähnlichen Lebensstil teilen. Dies können auch z.B. Kinder der Dorfbewohner sein, die inzwischen an anderen Orten studieren oder dauerhaft leben. Die Kooperative ist ein Kollektiv, in dem alle für die Gemeinschaft arbeiten, der aber nur ca. drei Viertel der Bewohner von Awra Amba angehören. Das verbleibende Viertel wirtschaftet unabhängig.
+
+## Arbeit in der Kooperative
+
+Die Kooperative koordiniert die zu erledigende Arbeit im Dorf (z.B. Lehrer, Weber) und in der Landwirtschaft. Offensichtlich waren auch die Tätigkeiten rund um den Tourismus zu einem Beschäftigungsfeld geworden. Ein kleines Restaurant und ein Hostel befanden sich in Awra Amba. Einen weiteren Kernzweig der Kooperative stellt die Weberei dar. Im Dorf gab es ein größeres Gebäude, in dem mehrere Webstühle und Spinnräder standen. Als wir zum ersten Mal auf der Führung in die Halle kamen, war gerade Mittagspause, dennoch bekamen wir freundlicherweise eine kleine Demonstration des Handwerks.
+
+https://www.youtube.com/watch?v=BAdNeh-nJPY
+
+Jedes Mitglied der Kooperative von Awra Amba stellt seine Arbeitskraft dem Wohl der Gemeinschaft zur Verfügung. Die Menschen arbeiten 8 Stunden am Tag, 5 Tage pro Woche. Die Tätigkeiten werden zugeteilt: Einer webt, andere betreiben Landwirtschaft etc. Zusätzlich kann man auch außerhalb der offiziellen Arbeitszeiten auf eigene Rechnung schaffen. (Arbeit ist ein zentrales Motiv des Lebens in Awra Amba). Die landwirtschaftlichen Erträge werden geteilt. Die Erläuterungen unseres Guides, der in der Gemeinschaft lebte, blieben in diesem Punkt etwas vage. Nach eigenem Bekunden verdiente er 1000 Birr pro Monat (weniger als 30 Euro) Fixgehalt plus Trinkgelder. Auch bei den Webern gab es ein Verteilungsmodell: Der Erlös aus dem Verkauf der Produkte wird innerhalb der Kooperative gerecht an alle ausgegeben. Im damals vergangenen Jahr (2017) waren es 7300 Birr, etwas über 200 Euro, pro Person und damit knapp 17 Euro pro Monat.
+
+## Awra Amba, ein Modell für alle?
+
+Bei allem was wir sahen und hörten, konnten wir uns des Gedankens nicht erwehren, dass ein Hauch von Kommunismus in der Luft lag. Gleichzeitig können wir bestätigen, dass in Awra Amba viele gute Ideen umgesetzt worden sind, und darauf können die Bewohner von Awra Amba zu Recht stolz sein. Eine Innovation zum Beispiel war ein spezieller Injera-Ofen, mit dem man das traditionelle Brot mit nur der Hälfte an Brennholz backen kann. Außerdem minimiert der Herd die Rauchentwicklung im Zimmer, was der Gesundheit zuträglich ist.
+
+![Ein sparsamer Injera-Ofen](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-115541-2027-1024x683.jpg)
+
+Awra Amba vereint viele sehr gute Ideen und kann in vielerlei Hinsicht als vorbildhaft angesehen werden. Das Konzept einer toleranten, solidarischen und gleichberechtigten Gesellschaft erinnert an einen Wunschtraum. Gleichzeitig widerspricht es dem klassischen Gesellschaftsentwurf in Äthiopien und daher ist es nachvollziehbar, dass die Gemeinschaft angefeindet wurde oder noch wird. Bekanntlich begegnen Menschen alternativen Lebensentwürfen häufig mit Zurückhaltung, Ablehnung oder sogar Feindseligkeit. Ist Awra Amba zu radikal? Oder sollte die Gemeinschaft ein Vorbild für Äthiopien und die Welt sein?
+
+Wir antworten mit einem definitiven "Jein", denn Awra Amba erschien uns nicht ohne Widersprüche. So wurde zum Beispiel der Mann, der die Religion abgeschafft hat, selbst zum Prediger und vielleicht sogar mehr. (Seine Schriften hätten wir auch käuflich erwerben können.) Außerdem engt das System die Menschen vermutlich nicht unwesentlich ein, da alle Mitglieder von Gemeinschaft und Kooperative ihr Soll erfüllen müssen. Es stellt sich die Frage wie viel Rahmen das Individuum braucht bzw. verträgt, um zufrieden (glücklich?) sein zu können.
+
+## Der wirtschaftliche Erfolg von Awra Amba?
+
+Nicht zuletzt ist der wirtschaftliche Erfolg der Kooperative etwas zweifelhaft. Auch wenn es dem System hoch anzurechnen ist, dass es nach eigenem Bekunden dafür gesorgt hat, dass die Mitglieder keinen Hunger leider müssen, so ist das monetäre Einkommen trotzdem noch sehr niedrig und geringer als das [Durchschnittseinkommen](https://de.wikipedia.org/wiki/Liste_der_L%C3%A4nder_nach_Bruttonationaleinkommen_pro_Kopf) in Äthiopien (Naturalien aus der Landwirtschaft, Investitionen in Bildung und Versorgung im Krankheitsfall nicht mitgerechnet).
+
+![Die Bücherei mit vielen gespendeten Büchern](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-114702-2019-1024x683.jpg)
+
+Bei einem zweiten Besuch in der Halle der Weber nach dem Mittagessen bot sich ein etwas ernüchterndes Bild. Im dem Gebäude saßen mehrere Frauen auf dem Boden und sponnen Garn. Außerdem webte nur ein einzelner Mann an einem der Webstühle. Wenn die Weberei eine der Haupteinnahmequellen der Kooperative ist, warum arbeiteten dann nicht mehr Menschen dort? Fanden die Produkte aus den alten, vor vielen Jahren gespendeten Webstühlen keine Käufer? Hatte die Planwirtschaft falsch gesteuert? Oder sind Tourismus und sonstige Vermarktung des Projekts mittlerweile lukrativer? Vielleicht war aber auch schlicht gerade zu der Zeit viel auf den Feldern zu tun.
+
+![Die Weberhalle in Awra Amba](http://wittmann-tours.de/wp-content/uploads/2020/02/CW-20181019-121458-2034-1024x683.jpg)
+
+Diese Fragen können wir nicht beantworten. Festhalten wollen wir aber, dass Awra Amba ein mehr als interessantes Experiment ist und uns sehr zum Nachdenken angeregt hat. Die Bewohner haben viel erreicht, aber das Modell scheint nicht auf andere Gemeinschaften übertragbar zu sein, sonst wäre dies wohl längst geschehen. Könnten sich mehr Gedanken aus Awra Amba durchsetzen, wäre die Welt bestimmt eine bessere, aber auch dieses Dorf ist eben doch nicht das Paradies auf Erden. Vermutlich liegt die Schwierigkeit in unserer menschlichen Natur. Anscheinend sind allem Streben nach Harmonie zum Trotz nicht alle zu einem Leben in solch einer Gemeinschaft geschaffen. Wahrscheinlich ist in uns allen der evolutionsbiologische Drang begründet, nur dann zufrieden sein zu können, wenn wir mindestens ein wenig stärker, wohlhabender, gutaussehender oder erfolgreicher sind als unser Nächster.
+
+## Postskriptum
+
+PS.: Ein positiver Aspekt des Blogschreibens ist, dass wir uns mit den Orten, die wir besucht haben, erneut auseinandersetzen dürfen. Dabei können wir allerdings nicht mehr auf einen lokalen Führer zurückgreifen, sondern nur auf unsere Erinnerung, den Reiseführer und das Internet. Manchmal ergeben sich für uns dabei ganz neue Einblicke in das auf der langen Reise Erlebte. Über Awra Amba haben wir zum Beispiel diesen äußerst differenziert geschriebenen [Artikel](https://local.attac.org/rhone/article.php3?id_article=1512) gefunden, den wir Euch empfehlen möchten, wenn Ihr mehr über das Dorf und das zugrundeliegende Konzept erfahren möchtet.

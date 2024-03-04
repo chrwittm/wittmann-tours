@@ -1,0 +1,84 @@
+---
+title: 'Nosy Mangabe'
+description: ""
+published: 2019-07-07
+redirect_from: 
+            - https://wittmann-tours.de/nosy-mangabe/
+categories: "Aye-aye, Blattschwanzgecko, Buckelwale, lemuren, Madagaskar, Madagaskar, Masoala, Nosy Mangabe, Regenwald, Uroplatus, Whale Watching"
+hero: ../../../defaultHero.jpg
+---
+# Nosy Mangabe
+
+Durch die Verschiebung unseres [Fluges](http://wittmann-tours.de/mit-mad-air-gestrandet-am-pangalanes-kanal/) um einen Tag war auch das Masoala-Programm etwas durcheinander geraten. Damit wir trotzdem 4 Tage Masoala würden erleben können, ging es sofort los. Statt einen Tag in [Maroansetra](https://de.wikipedia.org/wiki/Maroantsetra) zu übernachten, sollten wir sofort zur Insel Nosy Mangabe aufbrechen, da das Meer gerade noch ruhig war. Dass wir dort zelten würden, war zwar eine kleine Überraschung für uns - aber egal, wir waren gekommen, um den Regenwald zu erleben, und los ging es!
+
+![Im Landeanflug auf Maroansetra](http://wittmann-tours.de/wp-content/uploads/2019/06/KH-20180817_131719-Edit-1-1024x576.jpg)
+
+<!--more-->
+
+## Überfahrt nach Nosy Mangabe
+
+Die Fahrt vom Flughafen zum kleinen Hafen von Maroansetra dauerte etwa eine halbe Stunde. Hier war Madagaskar deutlich grüner als in den anderen Landesteilen. Die Felder, die Bäume, die Gärten, alles strahlte in leuchtendem Grün. Die Häuser hier waren etwas anders gebaut, viele hatten ein Vordach. Die meisten Waren der Geschäfte der Stadt standen nicht einfach im Freien, sondern unter Wellblechdächern. All dies waren sichere Hinweise auf den täglichen Regen, der im tropischen Regenwald einfach dazugehört, wie wir erleben sollten.
+
+![Regenwaldarchitektur: Die meisten Geschäfte hatten Wellblechvordächer, um ihre Waren zu schützen.](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-134826-8073-1024x683.jpg)
+
+Im Hafen trafen wir Armand, unseren Masoala-Führer, Bootsführer Mami und unsere Köchin Medania. Bevor wir in ruhiges Fahrwasser im offenen Meer der Bucht [Baie d’Antongil](https://de.wikipedia.org/wiki/Baie_d%E2%80%99Antongil) kamen, mussten wir die Brandung überwinden. Das Boot hüpfte in langsamer Fahrt über die Wellen. Unser Ziel hatten wir schon deutlich vor Augen: Nosy Mangabe, die [Insel Mangabe](https://de.wikipedia.org/wiki/Nosy_Mangabe).
+
+![Bei der Durchquerung der Brandung schaukelte das Boot schon sehr, trotz ruhiger See.](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-141046-8085-1024x683.jpg)
+
+## Das Lemuren-Empfangskomitee
+
+Nosy Mangabe machte auf uns sofort den Eindruck eines kleinen Paradieses: Die Wellen leckten faul am gelben Strand, direkt am Ufer begann üppiger grüner Wald, angenehme Temperaturen. Außerdem waren wir neben einer Kleingruppe französischer Touristen die einzigen Besucher auf der Insel.
+
+![Angekommen im Paradies: Nosy Mangabe](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-143756-9960-Edit-1024x683.jpg)
+
+Vor der ersten Wanderung aßen wir ein kleines Mittagessen mit Salat, Reis, Rindfleisch und grünen Bohnen. Eine kleine Gruppe von Lemuren hatte uns bemerkt und sie waren sehr daran interessiert, was da so auf dem Tisch stand, aber mit Lemuren teilen wir unser Essen nicht. Sie beobachteten uns gebannt von den umstehenden Bäumen, kamen manchmal näher und versuchten, mit ihren drolligen Grunzlauten auf sich aufmerksam zu machen. Besonderes Lemureninteresse weckte der Nachtisch: Bananen. Sie versuchten angestrengt, die Bananen zu hypnotisieren, zu levitieren oder uns zu bezirzen, aber erneut ohne Erfolg. Wir freuten uns trotzdem sehr über die außergewöhnliche Gesellschaft.
+
+![Das Lemuren-Empfangskomitee mit baunen Lemuren und Weißkopfmaki](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-152130-9968-1024x683.jpg)
+
+## Der letzte Zufluchtsort des Aye-Aye
+
+Nosy Mangabe ist ein Teil des [Masoala-Nationalparks](https://de.wikipedia.org/wiki/Nationalpark_Masoala) und ganz mit tropischem Primärwald bewachsen. Zahlreiche Urwaldriesen spannten ihre Äste und Blätter über uns aus, Anzeichen von Rodung gab es nicht. Vorausschauender Umweltschutz schien hier gegriffen zu haben. Das seltsame Fingertier [Aye-Aye](https://de.wikipedia.org/wiki/Fingertier) war zu seinem Schutz auf Nosy Mangabe eingeführt worden. Aufgrund seines gespenstischen Aussehens sehen manche Völker Madagaskars in den außergewöhnlichen Lemuren böse Geister und töten sie, wo sie nur können. Seit 1965 steht die Insel unter Schutz und der Aye-Aye hat dort ein neues Zuhause gefunden, obwohl er auf Nosy Mangabe ursprünglich nicht heimisch war.
+
+![Der Wald auf Nosy Mangabe machte einen unberührten Eindruck und der Weg forderte unsere Kondition.](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-162854-9990-HDR-683x1024.jpg)
+
+Doch leider bekamen wir keinen Aye-Aye zu Gesicht und auch die anderen Tiere machten sich an diesem Nachmittag rar. Dafür genossen wir den mächtigen Urwald und schwitzten beim Erklimmen der steilen Pfade in der tropischen Luftfeuchtigkeit. Am Umkehrpunkt befand sich eine [Grabstätte der Ahnen](https://www.madamagazine.com/en/die-graeber-von-nosy-mangabe/) vom Festland, die dort in Steinsärgen ruhten.
+
+![Die Fasana Tombeaux Tombs](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-164451-9999-1024x683.jpg)
+
+Beim Abstieg in der einsetzenden Dämmerung erlebten wir, wie der Wald akustisch zum Leben zu erwachen schien. Die Frösche und Zikaden wurden munter und starteten ihr Konzert. Fast schon wieder zurück im Camp passierten wir einen wunderschönen kleinen Wasserfall. Etwas später fing es leicht zu regnen an und die grünen Blätter glänzten feucht im schwindenden Licht.
+
+![Ein idyllischer Wasserfall nahe dem Camp](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-172943-0020-1024x683.jpg)
+
+## Nosy Mangabe bei Nacht
+
+Auch wenn der ganze Wald zirpte und quakte, war es doch recht schwierig, die Verursacher der Urwald-Geräuschkulisse ausfindig zu machen. Hunderte von Fröschen mussten überall auf den Blättern sitzen, aber in der Realität machte ihre Tarnung sie nahezu unsichtbar. Erstaunlicherweise waren sie wenig lichtscheu, wenn wir sie einmal gefunden hatten. Die meisten wurden ruhig, manche quakten aber munter weiter.
+
+![Das Quaken der Frösche durchdrank die nächtliche Dunkelheit.](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180817-181650-8113-1024x683.jpg)
+
+Leider sind Nachtwanderungen auf Nosy Mangabe nicht erlaubt, aber unser Führer Armand fand trotzdem direkt am Rande unseres Camps zwei Mouse Makis. Unglaublich aber wahr, er erspähte sogar einen Großmeister der Tarnung, einen Blattschwanzgecko, mitten im Vegetationsgewirr des Regenwaldes. Kaum zu erkennen saß dieser auf einem Baumstamm und sah aus wie ein Teil der Rinde. Da er keine Augenlider besitzt, benetzt und reinigt er die Augen mit seiner Zunge. Als wir ihn betrachteten, wollte er dann wohl doch nicht so sehr im Rampenlicht stehen und bewegte sich langsam und ganz unauffällig davon, ein beeindruckendes Schauspiel!
+
+https://www.youtube.com/watch?v=NzgEBASX-B0
+
+Unsere Zelte standen in kleinen hölzernen Schutzhütten ohne Wände. Das war sehr hilfreich, da im Regenwald bekanntlich mit Niederschlägen zu rechnen ist. Im Laufe der Nacht wurde es erstaunlich kühl. Unser Lager befand sich nur wenige Meter vom Strand entfernt. So begleitete uns das gleichmäßige Geräusch der sanften Wellen in den Schlaf.
+
+![Outdoor-Light: Auf diesen Plattformen standen unsere Zelte.](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180818-071714-8122-1024x683.jpg)
+
+## Verwirrtes Nagetier
+
+Am nächsten Morgen erwartete uns eine unangenehme Überraschung: Mein Fotorucksack war in der Dunkelheit angeknabbert worden. Er hatte über Nacht außerhalb des Zeltes auf der Plattform gelegen, vermeintlich gut geschützt in seiner Regenhülle. Der Rucksack schien aber verheißungsvoll gerochen zu haben. Erkennbares Motiv der Tat war eine Tüte mit Hustenbonbons. Der kleine Nager hatte ein akkurates Loch erst durch die Regenhülle, dann durch eine Außentasche und schließlich in die Plastiktüte geknabbert. Die Bonbons selbst waren aber fast unberührt. Anscheinend war der Verursacher vom Mentholgeschmack enttäuscht gewesen.
+
+![Saubere Arbeit, der Rucksack ist geöffnet.](http://wittmann-tours.de/wp-content/uploads/2019/06/APC_1901-1024x768.jpg)
+
+Noch viel verwunderlicher war, dass beim Einsprühen die Plastikflasche mit dem Moskitospray leckte. Auch die robuste Flasche war Opfer der Knabberattacke geworden. Unser nächtlicher Besucher litt wohl etwas an Geschmacksverirrung. Hustenbonbons und DEET-Insektenspray statt gesunder Bio-Masoala-Kost, wir mussten uns doch sehr wundern ;).
+
+## Whale Watching auf der Überfahrt
+
+Schon um 7 Uhr früh starteten wir unsere Überfahrt auf die Masoala-Halbinsel, da das Meer noch ruhig war. Nach kurzer Zeit erfrischte uns ein leichter Schauer und unser kleines Bötchen hüpfte über die Wellenberge. Als es wieder aufgehört hatte zu regnen, zeigte Armand Richtung Steuerbord. Zu unserer Überraschung, aber für die Jahreszeit nicht ungewöhnlich, schwammen dort mehrere Gruppen von [Buckelwalen](https://de.wikipedia.org/wiki/Buckelwal).
+
+![Eine Gruppe von Buckelwalen auf der Überfahrt nach Masoala](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180818-075326-0078-1024x576.jpg)
+
+Wir sahen, wie sie ihre Wasserfontänen in die Luft bliesen. Ein Gruppe kam sogar immer näher, also stoppte unser Bootsführer Mami den Außenborder, um keinen Lärm zu verursachen. Bis auf 50 Meter kamen die Wale an uns heran, dann tauchten sie ab - was für ein bewegendes Erlebnis, diesen Riesen der Meere unverhofft so nahe zu kommen!
+
+![Wolken auf allen Ebenen](http://wittmann-tours.de/wp-content/uploads/2019/06/CW-20180818-075529-0088-1024x683.jpg)
+
+Über der Masoala-Halbinsel türmten sich hohe, vielschichtige Wolkengebilde auf. Sie blieben allerdings über dem Festland und fielen dann im Laufe der Zeit, aufgewärmt durch die Sonne, in sich zusammen. So blieb unsere Überfahrt zum Glück weitestgehend trocken.

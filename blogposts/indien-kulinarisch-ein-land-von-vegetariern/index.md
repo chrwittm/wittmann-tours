@@ -1,0 +1,90 @@
+---
+title: 'Indien kulinarisch - Ein Land von Vegetariern?!'
+description: ""
+published: 2020-08-02
+redirect_from: 
+            - https://wittmann-tours.de/indien-kulinarisch-ein-land-von-vegetariern/
+categories: "Essen, Essen und Trinken, Indien, Indien, kulinarisch, Nachtisch, Süßigkeiten, Thali, veg, Vegetarier, vegetarisch"
+hero: ../../../defaultHero.jpg
+---
+# Indien kulinarisch - Ein Land von Vegetariern?!
+
+Das Essen in Indien stellte zuverlässig einen kleinen Höhepunkt dar, vom Frühstück über das Mittag- und Abendessen bis zum Nachtisch und den Süßigkeiten. Dabei bilden indische Gerichte einen ganz eigenen schmackhaften Kosmos, der sich deutlich von unseren westlichen kulinarischen Vorstellungen unterscheidet. Jenseits des Klischees von Curry und Reis ist ein bemerkenswerter Punkt an der indischen Küche, dass sie sich größtenteils vegetarisch präsentiert.
+
+![Ein vegetarisches Thali mit Mattar Paneer, einem Okra-Gericht, Dal, Reis, Chapati, Papadam und Joghurt](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2295-1024x768.jpg)
+
+<!--more-->
+
+## Die Indier ernähren sich größtenteils "veg"
+
+In Indien unterscheidet man zwischen "veg" ("wedsch" ausgesprochen) und "non-veg". In der Tat gab es immer sehr viele leckere "veg", also vegetarische, Gerichte zur Auswahl, die ganz und gar nicht nach einer Notlösung schmeckten wie der gemischte Salat mit Käsewürfeln im bayrischen Biergarten. Egal ob man Vegetarier ist oder nicht, die Eckpfeiler der indischen Küche sind vegetarisch. [Paneer](https://en.wikipedia.org/wiki/Paneer) z.B. ist ein Frischkäse, der in etwa eine Konsistenz zwischen Tofu und Mozarella aufweist. Dieser kann auf unzählige verschiedene Arten zubereitet werden, etwa mit Spinat als Palak Paneer, mit Erbsen als Mattar Paneer oder in einem würzigen Curry als Paneer Masala. Ein weiterer Klassiker sind Dal-Gerichte aus diversen Hülsenfrüchten in würzigen Saucen, immer anders und immer wieder sehr schmackhaft. So verwandelten wir uns in Indien zu 97% in Wahl-Vegetarier, ohne jemals etwas zu vermissen.
+
+![Palak Paneer, ein indischer Klassiker](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2328-1024x768.jpg)
+
+Eine vegetarische Lebensweise gehört in Indien ganz normal zum Alltag, so sehr, dass wir geschätzt hätten, dass 80 bis 90% der Inder Vegetarier sind. Das lässt sich mit offiziellen Statistiken allerdings nicht untermauern. Laut [Wikipedia](https://de.wikipedia.org/wiki/Vegetarismus#Indien) ernähren sich überraschenderweise nur 20 bis 40% der Inder vegetarisch. Betrachtet man den Anteil der Vegetarier an der Gesamtbevölkerung, ist Indien trotzdem weltweit führend. Laut [dieser Quelle](https://de.statista.com/statistik/daten/studie/261627/umfrage/anteil-von-vegetariern-und-veganern-an-der-bevoelkerung-ausgewaehlter-laender-weltweit/) praktizieren 38% der Inder Vegetarismus, in allen anderen Länder der Welt sind es deutlich weniger. Unklar ist dabei natürlich, wie diese Daten genau erhoben wurden und in welche Kategorie die Einstufung von De-facto-Vegetariern erfolgte, also Menschen, die vegetarisch leben, weil sie sich Fleisch nicht leisten können, die es aber prinzipiell essen würden.
+
+![Eines der wenigen Fleischgerichte, die wir in Indien gegessen haben: Chelo Kababs, aromatisch gewürztes Lammfleisch mit Reis und Ei.](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2250-1024x768.jpg)
+
+Ein weiterer interessanter Faktor ist der Konsum von Fleisch pro Kopf. Dieser liegt in Indien bei gerade einmal [3,7 kg pro Jahr und Mensch](https://www.destatis.de/DE/Themen/Laender-Regionen/Internationales/Thema/landwirtschaft-fischerei/tierhaltung-fleischkonsum/_inhalt.html). Dies ist nur ein Bruchteil des Fleischkonsums in anderen Ländern. Zum Vergleich: China 61,8 kg/Kopf und Mensch, Deutschland 86 kg/Kopf und Mensch und USA 115,1 kg/Kopf und Mensch. Wenn man diese Relationen betrachtet, bestätigte sich unser subjektiver Eindruck vor Ort schon eher, da selbst Nicht-Vegetarier in Indien vergleichsweise wenig Fleisch zu sich nehmen.
+
+## Indien als Fleischproduzent
+
+Nicht minder interessant ist in Indien neben dem Konsum auch die Angebotsseite, also die Fleischproduktion. Indien gehört weltweit zu den größten [Geflügelproduzenten](https://de.wikipedia.org/wiki/Gefl%C3%BCgelproduktion) mit Platz 5 im internationalen Vergleich, taucht allerdings laut Wikipedia in den Statistiken der [Schweine-](https://de.wikipedia.org/wiki/Schweineproduktion) und [Rinderproduktion](https://de.wikipedia.org/wiki/Rinderproduktion) nicht auf. - Produktion, ein eigenartiges Wort für die Haltung von Schlachttieren, aber kann das stimmen? Es ist allgemein bekannt, dass Kühe im Hinduismus heilig sind ([80% der Inder sind Hindus](https://en.wikipedia.org/wiki/Religion_in_India#Statistics)) und der Vegetarismus ist u.a. aus [religiösen Gründen](https://de.wikipedia.org/wiki/Vegetarismus#Religiöse_und_kulturelle_Einstellungen) in diesem Teil der Welt entstanden. Daher verbieten viele indische Bundesstaaten [das Schlachten von Rindern](https://en.wikipedia.org/wiki/Cattle_slaughter_in_India) sowie den Fleischexport.
+
+![Wasserbüffel in Varanasi, dies sind keine heiligen Kühe.](http://wittmann-tours.de/wp-content/uploads/2020/05/CW-20181110-124251-3247-Edit-1024x683.jpg)
+
+Es gibt allerdings noch eine anderen Kategorie, die [Büffelproduktion](https://en.wikipedia.org/wiki/Buffalo_meat#Indian_export), bei der Indien weltweit an der Spitze liegt. Dieser feine Unterschied wird in einigen Statistiken nicht berücksichtigt und daher findet man im Netz einige Artikel, die Indien als [Exportweltmeister](https://www.nzz.ch/wirtschaft/das-suendigste-geschaeft-indiens-ld.1302018) von Rindfleisch bezeichnen. Das Geschäft mit dem Fleisch ist auf alle Fälle ein explosives Politikum und strenggläubigen Hindus ein Dorn im Auge. Regelmäßig entlädt sich dieser religiöse Fundamentalismus sogar in Form von "[cow-related violence](https://en.wikipedia.org/wiki/Cow_vigilante_violence_in_India)" mit Toten und Verletzten. Der Respekt vor Kühen ist tief in der indischen Seele verwurzelt, was wiederum auch zu [wirtschaftlichen Problemen](https://de.wikipedia.org/wiki/Heilige_Kuh#Schlachten_von_K%C3%BChen) führen kann, wenn Tiere alt oder krank werden und ihr Unterhalt die finanziellen Möglichkeiten des Bauern übersteigt.
+
+![Eine heilige Kuh in Varanasi](http://wittmann-tours.de/wp-content/uploads/2020/05/CW-20181110-125953-6347-683x1024.jpg)
+
+Während unseres Aufenthaltes in Indien haben wir weder Rindfleisch gegessen, noch auf einer Speisekarte aufgeführt gesehen. Sogar international bekannte Fast Food-Ketten, deren Filialen uns in keiner der besuchten Städte aufgefallen sind, gestalten ihre [Speisekarte](https://www.mcdonaldsindia.com/products.html) auf der Basis von Geflügel bzw. vegetarisch. Wenn man bedenkt, daß eine vegetarische Ernährungsform bis zu einem Grade den Klima- und Umweltschutz fördert, global gesehen die Ernährung der Weltbevölkerung verbessern würde und außerdem der eigenen Gesundheit zugute kommt, könnte man Indien durchaus als Vorbild betrachten, v.a. weil das indische Essen unserer Meinung nach einfach köstlich ist. Die folgenden Abschnitte sollen Euch auf eine kleine kulinarische Reise nach Indien entführen, natürlich ausschließlich vegetarisch.
+
+## Pakora, Paratha oder Papadam als Vorspeise
+
+Als Vorspeise könnte man mit ein paar [Samosas](https://en.wikipedia.org/wiki/Samosa) beginnen. Dabei handelt es sich um knusprige kleine Teigtaschen in Form einer Pyramide mit dreieckiger Grundfläche, die mit gut gewürztem Gemüse oder Kartoffeln gefüllt und anschließend frittiert werden. Etwas weniger elegant, aber nicht minder schmackhaft sind [Pakoras](https://en.wikipedia.org/wiki/Pakora). Sie bestehen aus verschiedenen Sorten Gemüse, das in einen Teig aus Kichererbsenmehl getaucht und frittiert wird, sozusagen indisches Tempura ;).
+
+![Frittierte Gemüse-Pakoras](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2289-1024x768.jpg)
+
+[Paratha](https://en.wikipedia.org/wiki/Paratha) ist ein ungesäuertes Fladenrot, welches oft gefüllt wird, mit Kartoffeln, Blumenkohl, Tomaten, Kichererbsen, Paneer etc. Paratha kann ein Snack sein, aber auch eine vollständige Mahlzeit. Vielleicht die klassische Vorspeise Indiens stellen [Papadams](https://en.wikipedia.org/wiki/Papadum) dar. Dies sind frittierte, hauchdünne, knusprige Fladen aus Linsenmehl. Es gibt sie als neutrale oder pikant gewürzte Variante und sie werden mit Dips und Chutneys serviert.
+
+![Masala Papad erinnert entfernt an Bruschetta.](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2346-1024x768.jpg)
+
+## Thali als Hauptspeise
+
+Wenn man in Gesellschaft zusammen isst, entspricht es den Gepflogenheiten, verschiedene Gerichte zu bestellen und sie gemeinsam zu verspeisen. Als Einzelperson ist oft ein [Thali](https://en.wikipedia.org/wiki/Thali) die abwechslungsreicheste Wahl. Man bekommt auf einer großen Platte mehrere kleine Schälchen mit verschiedenen Gerichten und Beilagen serviert. In kleineren Restaurants wählt man nur die Anzahl der Schüsselchen. Die Gerichte sind dann eine Auswahl aus dem Tagesmenü. Wenn man Glück hat, enthält das Angebot auch ein kleines Dessert.
+
+![Ein vegetarisches Thali mit Dal, einem Blumenkohl-Curry, Palak Paneer, Reis, Raita und Naan](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2270-1024x768.jpg)
+
+Thali bezeichnet eigentlich nur die große Platte, auf der das Essen angerichtet wird, entweder in separaten Schüsselchen oder es wird in Vertiefungen gefüllt. Ebenfalls häufig auf einer Art Thali serviert, aßen wir auch sehr gerne [Dosas](https://en.wikipedia.org/wiki/Dosa). Dies sind riesige, hauchdünne, knusprige Pfannkuchen, die aus einem Teig von Reismehl und [Urdbohnen](https://en.wikipedia.org/wiki/Vigna_mungo) hergestellt und ähnlich wie Crêpes gebacken werden. Die Füllung besteht meist aus würzigen Kartoffeln oder Gemüse, dazu werden z.B. ein Linsengericht (Sambar) und mehrere Saucen oder Chutneys gereicht.
+
+![Dosa, gefüllt mit einem Curry aus gut gewürzten Kartoffeln](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2275-1024x768.jpg)
+
+## Verschiedene Brote und Raita als Beilage
+
+Als Beilage gab es bei weitem nicht nur Reis. Mindestens ebenso häufig bekamen wir verschiedene Arten von Brot, z.B. [Chapati](https://en.wikipedia.org/wiki/Chapati), [Naan](https://en.wikipedia.org/wiki/Naan) oder Puri, serviert. Am außergewöhnlichsten unter diesen dreien waren die weichen, warmen [Puris](<https://en.wikipedia.org/wiki/Puri_(food)>), die durch das Ausbacken in heißem Öl wie ein Luftballon aufgehen, beim Zerteilen aber schnell wieder in sich zusammenfallen.
+
+![Puri, ein wie ein Luftballon aufgetriebenes Brot](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2239-1024x768.jpg)
+
+Auch aromatisches [Raita](https://de.wikipedia.org/wiki/Raita) bestellten wir gerne als Beilage, wenn es nicht ohnehin im Thali eingeschlossen war. Dabei handelt es sich um ein Mittelding aus Sauce und Salat auf Joghurtbasis. Es gibt unzählige Varianten, herzhaft mit Tomaten oder Gurken, mit allen Arten von Gemüse, süß mit Früchten. Mal ist es eher flüssig, mal sämig. Wir mochten am liebsten das erfrischende Gurkenraita, aber Boondi Raita ist mehr als erwähnenswert. Auf das Raita werden winzige frittierte Bällchen aus Kichererbsenmehl (Boondi) gestreut, etwas so groß wie Rice Krispies. Sie erinnern von der Konsistenz ein wenig an Backerbsen. Anfangs sind sie knusprig, weichen jedoch leider rasch auf.
+
+![Ein Gurkenraita](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2251-1024x683.jpg)
+
+## Indische Süßigkeiten und Desserts
+
+Den krönenden Abschluss auch einer indischen Mahlzeit stellt natürlich der Nachtisch dar. Allein schon wegen der köstlichen [Süßigkeiten](https://en.wikipedia.org/wiki/Sweets_from_the_Indian_subcontinent) würden wir eine Indienreise empfehlen. Es gibt eine schier unendliche Auswahl an Konfekt, Pudding, Teigwaren, süßen Klößchen, Eiscreme, verfeinert mit Nüssen und Früchten, aromatisiert mit exotischen Gewürzen wie Kardamom, Rosenwasser und Safran, manchmal sogar dekoriert mit eßbarer Silberfolie (Vark).
+
+Trotz aller Begeisterung raten wir jedoch zur Vorsicht: [Rasgulla](https://en.wikipedia.org/wiki/Rasgulla) zum Beispiel ist zu zuckerig, um wahr zu sein. Es besteht aus süßen Frischkäse-Bällchen, die auch noch in einem konzentrierten Zuckersirup dümpeln. Mehr als maximal ein Stück kann man als Westler nicht zu sich nehmen. Dies lässt aber trotzdem den Blutzuckerspiegel in ungeahnte Höhen schnellen. Ähnlich, aber nicht ganz so extrem süß sind [Gulab Jamun](https://en.wikipedia.org/wiki/Gulab_jamun). Die Bällchen aus eingekochtem Milchkonzentrat werden frittiert und in Rosensirup eingelegt. Unser Favorit unter den süßen Klößchen waren [Ras Malai](https://en.wikipedia.org/wiki/Ras_malai). Auch hier handelt es sich um Bällchen aus Frischkäse, die mit Kardamom aromatisiert und mit clotted cream übergossen werden.
+
+![Super-süße Rasgulla in Zuckersirup](http://wittmann-tours.de/wp-content/uploads/2020/06/APC_2245-1024x768.jpg)
+
+Ein weitere köstliche indische Süßigkeit ist [Kulfi](https://en.wikipedia.org/wiki/Kulfi), das sich am besten als relativ feste indische Eiscreme beschreiben lässt. Kulfi besteht im Wesentlichen aus einer Mischung von eingekochter Milch, Sahne und gesüßter Kondensmilch, die mit weiteren Zutaten wie Pistazien, Kardamom, Rosenwasser oder Früchten verfeinert und gefroren wird.
+
+![Mango-Kulfi mit Pistazien](http://wittmann-tours.de/wp-content/uploads/2020/06/APC_2262-1024x768.jpg)
+
+[Barfi](https://en.wikipedia.org/wiki/Barfi), eine Art Konfekt, weist verglichen mit Rasgulla eine eher kontrollierte Süße auf, obwohl es im Wesentlichen aus einem eingekochten Gemisch aus Zucker und Kondensmilch besteht. Angedickt mit Kichererbsenmehl, verschiedenen Sorten von Nüssen, Gewürzen oder Früchten gibt es Barfi in den unterschiedlichsten delikaten Sorten.
+
+![Dieser kleine Laden verkauft verschiedene Variationen von Barfi.](http://wittmann-tours.de/wp-content/uploads/2020/05/CW-20181110-172150-3268-1024x683.jpg)
+
+Einer unserer absoluten Favoriten ist [Kaju Katli](https://en.wikipedia.org/wiki/Kaju_katli), ein Marzipan aus Cashew-Nüssen, das in rautenförmige Stücke geschnitten und mit essbarer Silberfolie überzogen wird. Im Gegensatz zu den leicht verderblichen Barfis hält sich Kaju Katli etwas länger, ist in jedem gut sortierten indischen Duty Free-Laden erhältlich und daher ein optimales Mitbringsel aus Indien!
+
+![Kaju Katli, Cashewmarzipan dekoriert mit Silberfolie](http://wittmann-tours.de/wp-content/uploads/2020/05/APC_2377-1024x768.jpg)
